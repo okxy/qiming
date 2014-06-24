@@ -1,4 +1,4 @@
-bin
+bin  斌 彬 宾 滨 槟 缤 
 ---
 
 Bin Binbi Binrun Bintao Binyue Binlong Binwei Binbai Binban Binshuai
