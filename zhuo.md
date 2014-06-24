@@ -1,4 +1,4 @@
-zhuo
+zhuo  拙 卓 酌 焯 濯 茁 淖
 ---
 
 Zhuo Zhuobi Zhuorun Zhuotao Zhuoyue Zhuolong Zhuowei Zhuobai Zhuoban Zhuoshuai
