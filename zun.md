@@ -1,4 +1,4 @@
-zun
+zun  尊 遵 樽
 ---
 
 Zun Zunbi Zunrun Zuntao Zunyue Zunlong Zunwei Zunbai Zunban Zunshuai
