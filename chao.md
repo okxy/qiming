@@ -1,4 +1,4 @@
-chao
+chao  超 朝 潮 巢 晁
 ---
 
 Chao Chaobi Chaorun Chaotao Chaoyue Chaolong Chaowei Chaobai Chaoban Chaoshuai
