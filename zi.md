@@ -1,4 +1,4 @@
-zi
+zi  字 子 自 紫 资 兹 仔 梓 姿 滋 孜 咨 秭
 ---
 
 Zi Zibi Zirun Zitao Ziyue Zilong Ziwei Zibai Ziban Zishuai
