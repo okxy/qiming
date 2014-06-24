@@ -1,4 +1,4 @@
-zhong
+zhong 中 钟 终 忠 仲 衷 众 
 ---
 
 Zhong Zhongbi Zhongrun Zhongtao Zhongyue Zhonglong Zhongwei Zhongbai Zhongban Zhongshuai
