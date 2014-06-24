@@ -1,4 +1,4 @@
-duan
+duan  段 端 锻
 ---
 
 Duan Duanbi Duanrun Duantao Duanyue Duanlong Duanwei Duanbai Duanban Duanshuai
