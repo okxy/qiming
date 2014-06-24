@@ -1,4 +1,4 @@
-chang
+chang  常 长 唱 畅 昌 敞 昶 倡 菖
 ---
 
 Chang Changbi Changrun Changtao Changyue Changlong Changwei Changbai Changban Changshuai
