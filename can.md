@@ -1,17 +1,13 @@
-can
+can 蚕 璨 参 灿
 ---
 
 Can Canbi Canrun Cantao Canyue Canlong Canwei Canbai Canban Canshuai
 
-Canxi Canli Cannuo Cannie Canling Cande Canqun Cansheng Canxian Cankun
+Canxi Canli Cannuo Canling Cande Cansheng Canxian Canou Cannian Canlou Canhou  Cantai Cangu Canlin
 
-Canou Cannian Canlou Cance Canhou Canfu Cantai Candan Cangu Canlin
+Canchuan Canjing Cankuang Canluo Canpeng Cannan Canxiao Canqin 
 
-Canchuan Canjing Cankuang Canluo Canpeng Cannan Canxiao Canqin Candun Canqu
-
-Canmai Canlv Canyang Canchao Canwo Cannu Canchen Candong Caner Canniu
-
-Cancan Canneng Canan Canke Canfang Canlun Cante Candao Canme Canya
+Canmai Canyang Canchao Canwo Cannu Canchen Candong Canneng Canan Canke Canfang Canlun Cante Candao Canya
 
 Cancao Canzhou Canjiu Canqiu Canfan Canshuo Canwen Canxin Canhong Canle
 
