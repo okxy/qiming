@@ -1,4 +1,4 @@
-zong
+zong  宗 棕 综 踪 枞
 ---
 
 Zong Zongbi Zongrun Zongtao Zongyue Zonglong Zongwei Zongbai Zongban Zongshuai
