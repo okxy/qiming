@@ -1,4 +1,4 @@
-fang
+fang 放 方 房 芳 仿 昉 彷
 ---
 
 Fang Fangbi Fangrun Fangtao Fangyue Fanglong Fangwei Fangbai Fangban Fangshuai
