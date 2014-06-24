@@ -1,4 +1,4 @@
-dun
+dun  顿 敦 惇 潡
 ---
 
 Dun Dunbi Dunrun Duntao Dunyue Dunlong Dunwei Dunbai Dunban Dunshuai
