@@ -1,4 +1,4 @@
-zhun
+zhun  准 谆 準
 ---
 
 Zhun Zhunbi Zhunrun Zhuntao Zhunyue Zhunlong Zhunwei Zhunbai Zhunban Zhunshuai
