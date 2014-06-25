@@ -13,7 +13,7 @@ Banning Banjuan Banjun Banren Banzhu Banpan Banxu Banseng Banen Banfen Banrui Ba
 
 Banxing Banzhun Banchuang Banzhao Banzhang Banguo Banbo   Banqian
 
-Banyao Banru Banhui Bantang Banhang Banqing Banmin Bankai Banshao Banzong Banmu Bantong Banchu Bancong Bangou Banjin
+Banyao Banru Banhui Bantang Banhang Banqing Banmin Bankai Banshao Bantong Banchu Bancong Banjin
 
 Banruo Banxun Banmeng Banbin Bandui Banyong Bansen Bancheng Banmou
 
