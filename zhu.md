@@ -1,33 +1,21 @@
-zhu
+zhu  祝 助 朱 柱 竹 著 珠 株 诸 筑 铸 竺 逐 渚 褚 茱 邾 杼
 ---
 
-Zhu Zhubi Zhurun Zhutao Zhuyue Zhulong Zhuwei Zhubai Zhuban Zhushuai
+Zhu Zhubi Zhurun Zhutao Zhuyue Zhubai Zhuxi Zhuli Zhuling Zhude Zhusheng Zhuxian Zhukun
 
-Zhuxi Zhuli Zhunuo Zhunie Zhuling Zhude Zhuqun Zhusheng Zhuxian Zhukun
+Zhunian Zhuhou Zhufu Zhutai Zhudan Zhugu Zhulin Zhuchuan Zhupeng Zhunan Zhuqin Zhuqu
 
-Zhuou Zhunian Zhulou Zhuce Zhuhou Zhufu Zhutai Zhudan Zhugu Zhulin
+Zhumai Zhulv Zhuyang Zhuchao Zhuneng Zhuan Zhuke Zhufang Zhulun Zhute Zhudao Zhuya
 
-Zhuchuan Zhujing Zhukuang Zhuluo Zhupeng Zhunan Zhuxiao Zhuqin Zhudun Zhuqu
+Zhuzhou Zhujiu Zhufan Zhushuo Zhuwen Zhuxin Zhuhong Zhule Zhujian Zhuying Zhuheng Zhuju Zhuda Zhushang 
 
-Zhumai Zhulv Zhuyang Zhuchao Zhuwo Zhunu Zhuchen Zhudong Zhuer Zhuniu
+Zhuwai Zhuming Zhuqi Zhukang Zhusai Zhuzhuo Zhugao Zhuyuan Zhuning Zhuzhai Zhushuang Zhuping Zhujuan 
 
-Zhucan Zhuneng Zhuan Zhuke Zhufang Zhulun Zhute Zhudao Zhume Zhuya
+Zhujun Zhuren Zhuzhu Zhupan Zhudi Zhuxu Zhuseng Zhuen Zhufen Zhurui Zhuchong
 
-Zhucao Zhuzhou Zhujiu Zhuqiu Zhufan Zhushuo Zhuwen Zhuxin Zhuhong Zhule
+Zhusi Zhuhuai Zhuyin Zhuze Zhuhun Zhuhai Zhuchuang Zhubang Zhuzhang Zhuguo Zhubo Zhuqian
 
-Zhuzeng Zhujian Zhuying Zhuheng Zhuken Zhuju Zhuda Zhupu Zhushang Zhushi
-
-Zhuwai Zhuming Zhupo Zhuqi Zhukang Zhusai Zhuzhuo Zhugao Zhuao Zhuyuan
-
-Zhuning Zhuzhai Zhuzha Zhushuang Zhuping Zhujuan Zhujun Zhuren Zhuzhu Zhupan
-
-Zhudi Zhuxu Zhudou Zhuseng Zhuen Zhufen Zhuman Zhurui Zhurao Zhuchong
-
-Zhukuo Zhufei Zhuye Zhusi Zhuhuai Zhue Zhuyin Zhuze Zhuhun Zhuhai
-
-Zhuxing Zhuzhun Zhuchuang Zhuwa Zhubang Zhuzhao Zhuzhang Zhuguo Zhubo   Zhuqian
-
-Zhushai Zhuyao Zhuru Zhuhui Zhumiao Zhucen Zhutang Zhupai Zhuhang Zhuqing
+Zhushai Zhuyao Zhuhui Zhumiao Zhucen Zhutang Zhupai Zhuhang Zhuqing
 
 Zhumin Zhukai Zhushao Zhuzong Zhumu Zhutong Zhuchu Zhucong Zhugou Zhujin
 
@@ -39,7 +27,7 @@ Zhuchang Zhumei Zhuguang Zhushen Zhuna Zhushun Zhucun Zhujiang Zhuzhuai Zhuhuan
 
 Zhusu Zhusong Zhuyan Zhuqiao Zhudu Zhujia Zhuchi Zhulei Zhushu Zhutian
 
-Zhuzun Zhuqiong Zhuxiu Zhusha Zhugeng Zhuzhen Zhugong Zhuzhi Zhumi Zhuyi
+Zhuzun Zhuqiong Zhuxiu Zhusha Zhugeng Zhuzhen Zhugong Zhumi Zhuyi
 
 Zhulan Zhugen Zhuyu Zhuhua Zhuchun Zhuji Zhulang Zhusun Zhuzheng Zhumie
 
@@ -47,6 +35,4 @@ Zhuhe Zhuxue Zhupei Zhuxiang Zhuqie Zhuyou Zhuge Zhuguan Zhujiao Zhufeng
 
 Zhuting Zhunai Zhuxia Zhudai Zhuchan Zhuteng Zhujie Zhuzhan Zhumian Zhukuan
 
-Zhugai Zhushan Zhuran Zhuzhe Zhulu Zhuwang Zhuxuan Zhuzhong Zhuhao Zhuzu
-
-Zhugang Zhuqiang Zhurong Zhushe 
+Zhushan Zhuran Zhuzhe Zhulu Zhuwang Zhuxuan Zhuzhong Zhuhao Zhuqiang Zhurong Zhushe 
