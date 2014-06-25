@@ -1,39 +1,27 @@
-lun
+lun  论 伦 仑
 ---
 
-Lun Lunbi Lunrun Luntao Lunyue Lunlong Lunwei Lunbai Lunban Lunshuai
+Lun Lunrun Luntao Lunwei Lunxi Lunnuo Lunde Lunqun Lunsheng Lunxian Lunkun
 
-Lunxi Lunli Lunnuo Lunnie Lunling Lunde Lunqun Lunsheng Lunxian Lunkun
+Lunhou Lunfu Lundan Lunlin Lunjing Lunpeng Lunnan Lunxiao Lunqin Lundun 
 
-Lunou Lunnian Lunlou Lunce Lunhou Lunfu Luntai Lundan Lungu Lunlin
+Lunmai Lunyang Lunchao Lunchen Luncan Lunneng Lunan Lunke Lunfang Lunte Lunya
 
-Lunchuan Lunjing Lunkuang Lunluo Lunpeng Lunnan Lunxiao Lunqin Lundun Lunqu
-
-Lunmai Lunlv Lunyang Lunchao Lunwo Lunnu Lunchen Lundong Luner Lunniu
-
-Luncan Lunneng Lunan Lunke Lunfang Lunlun Lunte Lundao Lunme Lunya
-
-Luncao Lunzhou Lunjiu Lunqiu Lunfan Lunshuo Lunwen Lunxin Lunhong Lunle
+Lunzhou Lunjiu Lunfan Lunshuo Lunxin Lunhong Lunle
 
 Lunzeng Lunjian Lunying Lunheng Lunken Lunju Lunda Lunpu Lunshang Lunshi
 
-Lunwai Lunming Lunpo Lunqi Lunkang Lunsai Lunzhuo Lungao Lunao Lunyuan
-
-Lunning Lunzhai Lunzha Lunshuang Lunping Lunjuan Lunjun Lunren Lunzhu Lunpan
+Lunming Lunqi Lunkang Lunsai Lunzhuo Lungao Lunning Lunping Lunjun Lunren 
 
 Lundi Lunxu Lundou Lunseng Lunen Lunfen Lunman Lunrui Lunrao Lunchong
 
-Lunkuo Lunfei Lunye Lunsi Lunhuai Lune Lunyin Lunze Lunhun Lunhai
+Lunkuo Lunye Lunsi Lunhuai Lunze Lunhai Lunxing Lunbang Lunzhao Lunguo Lunbo   Lunqian
 
-Lunxing Lunzhun Lunchuang Lunwa Lunbang Lunzhao Lunzhang Lunguo Lunbo   Lunqian
+Lunyao Luntang Lunhang Lunqing Lunkai Lunshao Lunzong Lunmu Luntong Luncong 
 
-Lunshai Lunyao Lunru Lunhui Lunmiao Luncen Luntang Lunpai Lunhang Lunqing
+Lunruo Lunxun Lunmeng Lunbin Lunyong Lunsen Luncheng Lunmou
 
-Lunmin Lunkai Lunshao Lunzong Lunmu Luntong Lunchu Luncong Lungou Lunjin
-
-Lunruo Lunnun Lunxun Lunmeng Lunbin Lundui Lunyong Lunsen Luncheng Lunmou
-
-Lunyun Lunduan Lunhan Lunquan Lunwu Lunzi Lunai Luncai Lunsui Lunbing
+Lunyun Lunduan Lunhan Lunquan Lunwu Lunsui Lunbing
 
 Lunchang Lunmei Lunguang Lunshen Lunna Lunshun Luncun Lunjiang Lunzhuai Lunhuan
 
