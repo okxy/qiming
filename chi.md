@@ -1,52 +1,16 @@
-chi
+chi  持 赤 尺 弛 池 
 ---
 
-Chi Chibi Chirun Chitao Chiyue Chilong Chiwei Chibai Chiban Chishuai
+Chi Chiyue Chixi Chiling Chide Chisheng Chidan Chilin Chiyang Chifang Chiya
 
-Chixi Chili Chinuo Chinie Chiling Chide Chiqun Chisheng Chixian Chikun
+Chishuo Chixin Chihong Chiying Chida Chiming Chiqi Chikang  Chigao Chiyuan
 
-Chiou Chinian Chilou Chice Chihou Chifu Chitai Chidan Chigu Chilin
+Chining Chijun Chixu  Chirui Chize Chihun Chixing Chihui Chiqing
 
-Chichuan Chijing Chikuang Chiluo Chipeng Chinan Chixiao Chiqin Chidun Chiqu
+Chimin Chikai Chixun Chimeng Chibin Chiyong Chisen Chicheng Chiyun Chicai Chibing
 
-Chimai Chilv Chiyang Chichao Chiwo Chinu Chichen Chidong Chier Chiniu
+Chimei Chishen Chishun Chisong Chiyan Chijia Chilei Chishu Chiqiong Chixiu Chisha Chiyi
 
-Chican Chineng Chian Chike Chifang Chilun Chite Chidao Chime Chiya
+Chigen Chiyu Chichun Chizheng Chixue Chixiang Chifeng
 
-Chicao Chizhou Chijiu Chiqiu Chifan Chishuo Chiwen Chixin Chihong Chile
-
-Chizeng Chijian Chiying Chiheng Chiken Chiju Chida Chipu Chishang Chishi
-
-Chiwai Chiming Chipo Chiqi Chikang Chisai Chizhuo Chigao Chiao Chiyuan
-
-Chining Chizhai Chizha Chishuang Chiping Chijuan Chijun Chiren Chizhu Chipan
-
-Chidi Chixu Chidou Chiseng Chien Chifen Chiman Chirui Chirao Chichong
-
-Chikuo Chifei Chiye Chisi Chihuai Chie Chiyin Chize Chihun Chihai
-
-Chixing Chizhun Chichuang Chiwa Chibang Chizhao Chizhang Chiguo Chibo   Chiqian
-
-Chishai Chiyao Chiru Chihui Chimiao Chicen Chitang Chipai Chihang Chiqing
-
-Chimin Chikai Chishao Chizong Chimu Chitong Chichu Chicong Chigou Chijin
-
-Chiruo Chinun Chixun Chimeng Chibin Chidui Chiyong Chisen Chicheng Chimou
-
-Chiyun Chiduan Chihan Chiquan Chiwu Chizi Chiai Chicai Chisui Chibing
-
-Chichang Chimei Chiguang Chishen China Chishun Chicun Chijiang Chizhuai Chihuan
-
-Chisu Chisong Chiyan Chiqiao Chidu Chijia Chichi Chilei Chishu Chitian
-
-Chizun Chiqiong Chixiu Chisha Chigeng Chizhen Chigong Chizhi Chimi Chiyi
-
-Chilan Chigen Chiyu Chihua Chichun Chiji Chilang Chisun Chizheng Chimie
-
-Chihe Chixue Chipei Chixiang Chiqie Chiyou Chige Chiguan Chijiao Chifeng
-
-Chiting Chinai Chixia Chidai Chichan Chiteng Chijie Chizhan Chimian Chikuan
-
-Chigai Chishan Chiran Chizhe Chilu Chiwang Chixuan Chizhong Chihao Chizu
-
-Chigang Chiqiang Chirong Chishe 
+Chiting Chixia Chijie Chizhan Chishan Chiran Chilu Chixuan Chigang Chiqiang  
