@@ -1,47 +1,17 @@
 bang  帮 榜 邦 浜 
 ---
 
-Bangrun Bangyue Banglong Bangwei Bangbai Bangban Bangshuai
+Bangrun Bangyue Banglong Bangwei Bangshuai Bangxi Bangli Bangling Bangde Bangqun Bangsheng Bangxian Bangkun
 
-Bangxi Bangli Bangnuo Bangnie Bangling Bangde Bangqun Bangsheng Bangxian Bangkun
+Bangnian Bangfu Bangtai Banggu Banglin Bangqin Bangchao Bangwo Bangchen Bangdong Bangfang Bangte Bangya
 
-Bangou Bangnian Banglou Bangce Banghou Bangfu Bangtai Bangdan Banggu Banglin
+Bangqiu Bangshuo Bangwen Bangxin Bangle Bangying Bangheng Bangju Bangda Bangming Bangqi Bangkang Bangzhuo Bangyuan
 
-Bangchuan Bangjing Bangkuang Bangluo Bangpeng Bangnan Bangxiao Bangqin Bangdun Bangqu
+Bangning Bangping Bangren Bangrui Bangrao Bangsi Bangze Bangxing Bangzhao Bangguo Bangyao Bangqing
 
-Bangmai Banglv Bangyang Bangchao Bangwo Bangnu Bangchen Bangdong Banger Bangniu
+Bangmin Bangchu Bangcong Bangjin Bangxun Bangsen Bangcheng Bangyun Bangchang Bangmei Bangcun 
 
-Bangcan Bangneng Bangan Bangke Bangfang Banglun Bangte Bangdao Bangme Bangya
-
-Bangcao Bangzhou Bangjiu Bangqiu Bangfan Bangshuo Bangwen Bangxin Banghong Bangle
-
-Bangzeng Bangjian Bangying Bangheng Bangken Bangju Bangda Bangpu Bangshang Bangshi
-
-Bangwai Bangming Bangpo Bangqi Bangkang Bangsai Bangzhuo Banggao Bangao Bangyuan
-
-Bangning Bangzhai Bangzha Bangshuang Bangping Bangjuan Bangjun Bangren Bangzhu Bangpan
-
-Bangdi Bangxu Bangdou Bangseng Bangen Bangfen Bangman Bangrui Bangrao Bangchong
-
-Bangkuo Bangfei Bangye Bangsi Banghuai Bange Bangyin Bangze Banghun Banghai
-
-Bangxing Bangzhun Bangchuang Bangwa Bangbang Bangzhao Bangzhang Bangguo Bangbo   Bangqian
-
-Bangyao Bangmiao Bangcen Bangtang Bangpai Banghang Bangqing
-
-Bangmin Bangchu Bangcong Bangjin
-
-Bangxun Bangsen Bangcheng Bangyun 
-
-Bangchang Bangmei Bangcun 
-
-Bangsu Bangqiao Bangjia Bangshu 
-
-Bangqiong Bangxiu Bangzhen Bangzhi 
-
-Bangyu Banghua 
-
-Banghe  Bangjiao Bangfeng
+Bangsu Bangqiao Bangjia Bangshu Bangqiong Bangxiu Bangzhi Bangyu Banghua Banghe Bangjiao Bangfeng
 
 Bangteng Bangjie 
 
