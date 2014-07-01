@@ -1,52 +1,24 @@
-bi
+bi  比 笔 必 毕 碧 壁 彼 弼 裨
 ---
 
-Bi Bibi Birun Bitao Biyue Bilong Biwei Bibai Biban Bishuai
+Bitao Bilong Biwei Bishuai Bixi Biling Bide Biqun Bisheng Bixian Bikun Binian Bihou Bifu Bitai Bilin
 
-Bixi Bili Binuo Binie Biling Bide Biqun Bisheng Bixian Bikun
+Bijing Bipeng Bixiao Biqu Bimai Biyang Bichao Bichen Bidong Bineng Bian Bike Bifang Bite Biya
 
-Biou Binian Bilou Bice Bihou Bifu Bitai Bidan Bigu Bilin
+Bicao Bizhou Bijiu Biqiu Bifan Bishuo Biwen Bixin Bihong Bile Bizeng Bijian Biying Biju Bida Bishang Bishi
 
-Bichuan Bijing Bikuang Biluo Bipeng Binan Bixiao Biqin Bidun Biqu
+Biwai Biming Biqi Bikang Bizhuo Biao Biyuan Bining Bizhai Bizha Bijuan Bijun Biren Bizhu 
 
-Bimai Bilv Biyang Bichao Biwo Binu Bichen Bidong Bier Biniu
+Bixu Bien Bifen Biman Birui Birao Bichong Bifei Biye Bisi Bihuai Biyin Bize Bihun Bihai
 
-Bican Bineng Bian Bike Bifang Bilun Bite Bidao Bime Biya
+Bichuang Bibang Bizhao Bizhang Biguo Biqian Biyao Biru Bihui Bitang Bihang Biqing
 
-Bicao Bizhou Bijiu Biqiu Bifan Bishuo Biwen Bixin Bihong Bile
+Bikai Bimu Bitong Bicong Bijin Biruo Bixun Bimeng Bibin Biyong Bisen Bicheng Bimou
 
-Bizeng Bijian Biying Biheng Biken Biju Bida Bipu Bishang Bishi
+Biyun Bihan Biquan Biai Bicai Bimei Bishen Bina Bishun Bicun Bijiang Bihuan
 
-Biwai Biming Bipo Biqi Bikang Bisai Bizhuo Bigao Biao Biyuan
+Bisu Bisong Biyan Biqiao Bijia Bichi Bishu Bitian Biqiong Bixiu Bisha Bizhen Bigong Bimi Biyi
 
-Bining Bizhai Bizha Bishuang Biping Bijuan Bijun Biren Bizhu Bipan
+Bilan Bigen Biyu Bihua Bichun Bilang Bizheng Bihe Bixue Bixiang Biyou Bige Bijiao Bifeng
 
-Bidi Bixu Bidou Biseng Bien Bifen Biman Birui Birao Bichong
-
-Bikuo Bifei Biye Bisi Bihuai Bie Biyin Bize Bihun Bihai
-
-Bixing Bizhun Bichuang Biwa Bibang Bizhao Bizhang Biguo Bibo   Biqian
-
-Bishai Biyao Biru Bihui Bimiao Bicen Bitang Bipai Bihang Biqing
-
-Bimin Bikai Bishao Bizong Bimu Bitong Bichu Bicong Bigou Bijin
-
-Biruo Binun Bixun Bimeng Bibin Bidui Biyong Bisen Bicheng Bimou
-
-Biyun Biduan Bihan Biquan Biwu Bizi Biai Bicai Bisui Bibing
-
-Bichang Bimei Biguang Bishen Bina Bishun Bicun Bijiang Bizhuai Bihuan
-
-Bisu Bisong Biyan Biqiao Bidu Bijia Bichi Bilei Bishu Bitian
-
-Bizun Biqiong Bixiu Bisha Bigeng Bizhen Bigong Bizhi Bimi Biyi
-
-Bilan Bigen Biyu Bihua Bichun Biji Bilang Bisun Bizheng Bimie
-
-Bihe Bixue Bipei Bixiang Biqie Biyou Bige Biguan Bijiao Bifeng
-
-Biting Binai Bixia Bidai Bichan Biteng Bijie Bizhan Bimian Bikuan
-
-Bigai Bishan Biran Bizhe Bilu Biwang Bixuan Bizhong Bihao Bizu
-
-Bigang Biqiang Birong Bishe 
+Biting Binai Bixia Bidai Bichan Biteng Bijie Bimian Bikuan Bishan Bizhe Bilu Bixuan Bizhong Biqiang Birong 

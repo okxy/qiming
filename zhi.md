@@ -1,52 +1,28 @@
-zhi
+zhi  之 值 至 知 直 致 质 志 治 智 芷 祉 秩 挚 植 芝 执 枝
 ---
 
-Zhi Zhibi Zhirun Zhitao Zhiyue Zhilong Zhiwei Zhibai Zhiban Zhishuai
+Zhi Zhitao Zhiyue Zhiwei Zhixi Zhiling Zhide Zhiqun Zhisheng Zhixian Zhikun
 
-Zhixi Zhili Zhinuo Zhinie Zhiling Zhide Zhiqun Zhisheng Zhixian Zhikun
+Zhinian Zhifu Zhidan Zhilin Zhichuan Zhikuang Zhipeng Zhinan Zhixiao Zhiqin Zhiqu
 
-Zhiou Zhinian Zhilou Zhice Zhihou Zhifu Zhitai Zhidan Zhigu Zhilin
+Zhilv Zhiyang Zhichao Zhiwo Zhichen Zhidong Zhier Zhiniu
 
-Zhichuan Zhijing Zhikuang Zhiluo Zhipeng Zhinan Zhixiao Zhiqin Zhidun Zhiqu
+Zhican Zhian Zhifang Zhiya Zhizhou Zhijiu Zhishuo Zhiwen Zhixin Zhihong 
 
-Zhimai Zhilv Zhiyang Zhichao Zhiwo Zhinu Zhichen Zhidong Zhier Zhiniu
+Zhiying Zhiheng Zhiju Zhida Zhiming Zhiqi Zhikang Zhizhuo Zhiyuan
 
-Zhican Zhineng Zhian Zhike Zhifang Zhilun Zhite Zhidao Zhime Zhiya
+Zhining Zhiping Zhijun Zhizhu Zhien Zhifen Zhirui Zhize Zhihai
 
-Zhicao Zhizhou Zhijiu Zhiqiu Zhifan Zhishuo Zhiwen Zhixin Zhihong Zhile
+Zhixing Zhichuang Zhibang Zhizhao Zhizhang Zhiguo Zhibo  Zhiqian
 
-Zhizeng Zhijian Zhiying Zhiheng Zhiken Zhiju Zhida Zhipu Zhishang Zhishi
+Zhiyao Zhihui Zhicen Zhihang Zhiqing Zhimin Zhikai Zhitong Zhigou
 
-Zhiwai Zhiming Zhipo Zhiqi Zhikang Zhisai Zhizhuo Zhigao Zhiao Zhiyuan
+Zhixun Zhimeng Zhibin Zhiyong Zhicheng Zhimou Zhiyun Zhiduan Zhihan Zhiai Zhicai Zhisui Zhibing
 
-Zhining Zhizhai Zhizha Zhishuang Zhiping Zhijuan Zhijun Zhiren Zhizhu Zhipan
+Zhimei Zhiguang Zhishen Zhishun Zhicun Zhijiang Zhiyan Zhiqiao Zhijia Zhishu Zhitian
 
-Zhidi Zhixu Zhidou Zhiseng Zhien Zhifen Zhiman Zhirui Zhirao Zhichong
+Zhizhen Zhizhi Zhiyi Zhilan Zhiyu Zhihua Zhichun Zhilang Zhisun Zhizheng 
 
-Zhikuo Zhifei Zhiye Zhisi Zhihuai Zhie Zhiyin Zhize Zhihun Zhihai
+Zhihe Zhixue Zhixiang Zhiqie Zhiyou Zhiguan Zhijiao Zhifeng
 
-Zhixing Zhizhun Zhichuang Zhiwa Zhibang Zhizhao Zhizhang Zhiguo Zhibo   Zhiqian
-
-Zhishai Zhiyao Zhiru Zhihui Zhimiao Zhicen Zhitang Zhipai Zhihang Zhiqing
-
-Zhimin Zhikai Zhishao Zhizong Zhimu Zhitong Zhichu Zhicong Zhigou Zhijin
-
-Zhiruo Zhinun Zhixun Zhimeng Zhibin Zhidui Zhiyong Zhisen Zhicheng Zhimou
-
-Zhiyun Zhiduan Zhihan Zhiquan Zhiwu Zhizi Zhiai Zhicai Zhisui Zhibing
-
-Zhichang Zhimei Zhiguang Zhishen Zhina Zhishun Zhicun Zhijiang Zhizhuai Zhihuan
-
-Zhisu Zhisong Zhiyan Zhiqiao Zhidu Zhijia Zhichi Zhilei Zhishu Zhitian
-
-Zhizun Zhiqiong Zhixiu Zhisha Zhigeng Zhizhen Zhigong Zhizhi Zhimi Zhiyi
-
-Zhilan Zhigen Zhiyu Zhihua Zhichun Zhiji Zhilang Zhisun Zhizheng Zhimie
-
-Zhihe Zhixue Zhipei Zhixiang Zhiqie Zhiyou Zhige Zhiguan Zhijiao Zhifeng
-
-Zhiting Zhinai Zhixia Zhidai Zhichan Zhiteng Zhijie Zhizhan Zhimian Zhikuan
-
-Zhigai Zhishan Zhiran Zhizhe Zhilu Zhiwang Zhixuan Zhizhong Zhihao Zhizu
-
-Zhigang Zhiqiang Zhirong Zhishe 
+Zhiting Zhixia Zhiteng Zhijie Zhizhan Zhikuan Zhishan Zhizhe  Zhixuan Zhizhong Zhiqiang  

@@ -1,52 +1,22 @@
-cao
+cao  草 曹 操
 ---
 
-Cao Caobi Caorun Caotao Caoyue Caolong Caowei Caobai Caoban Caoshuai
+Cao Caoyue Caowei Caoban Caoshuai Caoxi Caonuo Caoling Caode Caoqun Caosheng Caoxian Caokun
 
-Caoxi Caoli Caonuo Caonie Caoling Caode Caoqun Caosheng Caoxian Caokun
+Caonian Caofu Caotai Caodan Caogu Caolin Caokuang Caopeng Caonan Caoqin 
 
-Caoou Caonian Caolou Caoce Caohou Caofu Caotai Caodan Caogu Caolin
+Caomai Caoyang Caodong Caoneng Caofang Caodao Caoya Caozhou Caofan Caoshuo Caowen Caoxin Caohong 
 
-Caochuan Caojing Caokuang Caoluo Caopeng Caonan Caoxiao Caoqin Caodun Caoqu
+Caojian Caoying Caoheng Caoshi Caoming Caoqi Caokang Caosai Caozhuo Caogao Caoyuan
 
-Caomai Caolv Caoyang Caochao Caowo Caonu Caochen Caodong Caoer Caoniu
+Caoning Caoping Caojuan Caojun Caoren Caozhu Caoxu Caoseng Caofen Caorui Caokuo Caohuai Caoyin Caoze Caohai
 
-Caocan Caoneng Caoan Caoke Caofang Caolun Caote Caodao Caome Caoya
+Caoxing Caoguo Caobo  Caoru Caohui Caoqing Caomin Caotong Caocong Caojin
 
-Caocao Caozhou Caojiu Caoqiu Caofan Caoshuo Caowen Caoxin Caohong Caole
+Caoruo Caoxun Caomeng Caobin Caodui Caoyong Caosen Caomou Caoyun Caoquan Caoai Caobing
 
-Caozeng Caojian Caoying Caoheng Caoken Caoju Caoda Caopu Caoshang Caoshi
+Caomei Caoshen Caoshun Caojiang Caohuan Caosu Caosong Caoyan Caojia Caoshu Caotian
 
-Caowai Caoming Caopo Caoqi Caokang Caosai Caozhuo Caogao Caoao Caoyuan
+Caoqiong Caoxiu Caosha Caogeng Caozhen Caozhi Caomi Caoyi  Caohua Caochun Caoxue Caoxiang Caojiao Caofeng
 
-Caoning Caozhai Caozha Caoshuang Caoping Caojuan Caojun Caoren Caozhu Caopan
-
-Caodi Caoxu Caodou Caoseng Caoen Caofen Caoman Caorui Caorao Caochong
-
-Caokuo Caofei Caoye Caosi Caohuai Caoe Caoyin Caoze Caohun Caohai
-
-Caoxing Caozhun Caochuang Caowa Caobang Caozhao Caozhang Caoguo Caobo   Caoqian
-
-Caoshai Caoyao Caoru Caohui Caomiao Caocen Caotang Caopai Caohang Caoqing
-
-Caomin Caokai Caoshao Caozong Caomu Caotong Caochu Caocong Caogou Caojin
-
-Caoruo Caonun Caoxun Caomeng Caobin Caodui Caoyong Caosen Caocheng Caomou
-
-Caoyun Caoduan Caohan Caoquan Caowu Caozi Caoai Caocai Caosui Caobing
-
-Caochang Caomei Caoguang Caoshen Caona Caoshun Caocun Caojiang Caozhuai Caohuan
-
-Caosu Caosong Caoyan Caoqiao Caodu Caojia Caochi Caolei Caoshu Caotian
-
-Caozun Caoqiong Caoxiu Caosha Caogeng Caozhen Caogong Caozhi Caomi Caoyi
-
-Caolan Caogen Caoyu Caohua Caochun Caoji Caolang Caosun Caozheng Caomie
-
-Caohe Caoxue Caopei Caoxiang Caoqie Caoyou Caoge Caoguan Caojiao Caofeng
-
-Caoting Caonai Caoxia Caodai Caochan Caoteng Caojie Caozhan Caomian Caokuan
-
-Caogai Caoshan Caoran Caozhe Caolu Caowang Caoxuan Caozhong Caohao Caozu
-
-Caogang Caoqiang Caorong Caoshe 
+Caoting Caonai Caoxia Caoteng Caojie Caozhan Caokuan Caoshan Caozhe Caorong 

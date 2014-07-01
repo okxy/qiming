@@ -1,19 +1,17 @@
-dan
+dan 单 淡 丹 旦 诞 郸 耽
 ---
 
-Dan Danbi Danrun Dantao Danyue Danlong Danwei Danbai Danban Danshuai
+Dan Danrun Dantao Danyue Danlong Danwei Danbai Danban Danshuai
 
 Danxi Danli Dannuo Dannie Danling Dande Danqun Dansheng Danxian Dankun
 
 Danou Dannian Danlou Dance Danhou Danfu Dantai Dandan Dangu Danlin
 
-Danchuan Danjing Dankuang Danluo Danpeng Dannan Danxiao Danqin Dandun Danqu
+Danchuan Danjing Dankuang Danluo Danpeng Dannan Danxiao Danqin Danqu
 
-Danmai Danlv Danyang Danchao Danwo Dannu Danchen Dandong Daner Danniu
+Danyang Danchen Danneng Danfang Danlun Danya
 
-Dancan Danneng Danan Danke Danfang Danlun Dante Dandao Danme Danya
-
-Dancao Danzhou Danjiu Danqiu Danfan Danshuo Danwen Danxin Danhong Danle
+Danzhou Danjiu Danshuo Danwen Danxin Danhong Danle
 
 Danzeng Danjian Danying Danheng Danken Danju Danda Danpu Danshang Danshi
 
@@ -47,6 +45,6 @@ Danhe Danxue Danpei Danxiang Danqie Danyou Dange Danguan Danjiao Danfeng
 
 Danting Dannai Danxia Dandai Danchan Danteng Danjie Danzhan Danmian Dankuan
 
-Dangai Danshan Danran Danzhe Danlu Danwang Danxuan Danzhong Danhao Danzu
+Dangai Danran Danzhe Danlu Danxuan Danzhong Danhao Danzu
 
 Dangang Danqiang Danrong Danshe 

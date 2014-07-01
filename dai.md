@@ -1,52 +1,26 @@
-dai
+dai  待 代 戴 岱 黛
 ---
 
-Dai Daibi Dairun Daitao Daiyue Dailong Daiwei Daibai Daiban Daishuai
+Dai Dairun Daitao Daiyue Dailong Daiwei Daixi Daili Dainuo Dailing Daiqun Daisheng Daixian Daikun
 
-Daixi Daili Dainuo Dainie Dailing Daide Daiqun Daisheng Daixian Daikun
+Dainian Daifu Dailin Daichuan Dailuo Daipeng Dainan Daiqin Daiqu
 
-Daiou Dainian Dailou Daice Daihou Daifu Daitai Daidan Daigu Dailin
+Daiyang Daichen Dainiu Daineng Daifang Dailun Daiya
 
-Daichuan Daijing Daikuang Dailuo Daipeng Dainan Daixiao Daiqin Daidun Daiqu
+Daizhou Daifan Daishuo Daiwen Daixin Daihong Daile Daijian Daiying Daiju 
 
-Daimai Dailv Daiyang Daichao Daiwo Dainu Daichen Daidong Daier Dainiu
+Daiming Daiqi Daikang Daizhuo Daiyuan Daining Daiping Daijun Daizhu
 
-Daican Daineng Daian Daike Daifang Dailun Daite Daidao Daime Daiya
+Daidi Daixu Daien Daifen Dairui Daifei Daisi Daihuai Daiyin Daize Daihai
 
-Daicao Daizhou Daijiu Daiqiu Daifan Daishuo Daiwen Daixin Daihong Daile
+Daixing Daibang Daiguo Daiyao Dairu Daihui Daitang Daihang Daiqing
 
-Daizeng Daijian Daiying Daiheng Daiken Daiju Daida Daipu Daishang Daishi
+Daimin Daikai Daitong Daichu Daijin Dairuo Daixun Daimeng Daibin Daiyong Daisen Daicheng 
 
-Daiwai Daiming Daipo Daiqi Daikang Daisai Daizhuo Daigao Daiao Daiyuan
+Daiyun Daihan Daiquan Daiai Daisui Daimei Daishen Daina Daijiang 
 
-Daining Daizhai Daizha Daishuang Daiping Daijuan Daijun Dairen Daizhu Daipan
+Daisong Daiyan Daiqiao Daijia Daichi Dailei Daishu Daiqiong Daixiu Daizhi Daiyi
 
-Daidi Daixu Daidou Daiseng Daien Daifen Daiman Dairui Dairao Daichong
+Dailan Daihua Dailang Daisun Daihe Daixiang Daiyou Daiguan Daijiao Daifeng
 
-Daikuo Daifei Daiye Daisi Daihuai Daie Daiyin Daize Daihun Daihai
-
-Daixing Daizhun Daichuang Daiwa Daibang Daizhao Daizhang Daiguo Daibo   Daiqian
-
-Daishai Daiyao Dairu Daihui Daimiao Daicen Daitang Daipai Daihang Daiqing
-
-Daimin Daikai Daishao Daizong Daimu Daitong Daichu Daicong Daigou Daijin
-
-Dairuo Dainun Daixun Daimeng Daibin Daidui Daiyong Daisen Daicheng Daimou
-
-Daiyun Daiduan Daihan Daiquan Daiwu Daizi Daiai Daicai Daisui Daibing
-
-Daichang Daimei Daiguang Daishen Daina Daishun Daicun Daijiang Daizhuai Daihuan
-
-Daisu Daisong Daiyan Daiqiao Daidu Daijia Daichi Dailei Daishu Daitian
-
-Daizun Daiqiong Daixiu Daisha Daigeng Daizhen Daigong Daizhi Daimi Daiyi
-
-Dailan Daigen Daiyu Daihua Daichun Daiji Dailang Daisun Daizheng Daimie
-
-Daihe Daixue Daipei Daixiang Daiqie Daiyou Daige Daiguan Daijiao Daifeng
-
-Daiting Dainai Daixia Daidai Daichan Daiteng Daijie Daizhan Daimian Daikuan
-
-Daigai Daishan Dairan Daizhe Dailu Daiwang Daixuan Daizhong Daihao Daizu
-
-Daigang Daiqiang Dairong Daishe 
+Daiting Daixia  Daiteng Daijie Dairan Daizhe Dailu Daixuan Daizhong Dairong 

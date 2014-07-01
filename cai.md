@@ -1,52 +1,22 @@
-cai
+cai  才 菜 彩 采 材
 ---
 
-Cai Caibi Cairun Caitao Caiyue Cailong Caiwei Caibai Caiban Caishuai
+Cai Cairun Caitao Caiyue Cailong Caiwei Caixi Caili Cainuo Cailing Caiqun Caisheng Caixian Caikun
 
-Caixi Caili Cainuo Cainie Cailing Caide Caiqun Caisheng Caixian Caikun
+Cainian Caifu Caitai Cailin Caijing Cailuo Caipeng Cainan Caiqin Caiqu Caimai Caichao Caifang Cailun 
 
-Caiou Cainian Cailou Caice Caihou Caifu Caitai Caidan Caigu Cailin
+Caiya Caicao Caiqiu Caifan Caishuo Caiwen Caixin Caihong Caile Caijian Caiying Caishang Caishi
 
-Caichuan Caijing Caikuang Cailuo Caipeng Cainan Caixiao Caiqin Caidun Caiqu
+Caiming Caiqi Caizhuo Caiyuan Caining Caiping Caijun Cairen Caizhu Caidi Caixu Caiseng Caien Caifen Cairui
 
-Caimai Cailv Caiyang Caichao Caiwo Cainu Caichen Caidong Caier Cainiu
+Caiye Caisi Caize Caixing Caibang Caiguo Caiqian Caiyao Cairu Caimiao Caiqing
 
-Caican Caineng Caian Caike Caifang Cailun Caite Caidao Caime Caiya
+Caimin Caikai Caizong Caimu Caitong Caicong Caijin Cairuo Caixun Caibin Caiyong Caisen Caicheng Caimou
 
-Caicao Caizhou Caijiu Caiqiu Caifan Caishuo Caiwen Caixin Caihong Caile
+Caiyun Caihan Caiquan Caicai Caisui Caichang Caimei Caishen Caina Caishun Caijiang Caihuan
 
-Caizeng Caijian Caiying Caiheng Caiken Caiju Caida Caipu Caishang Caishi
+Caiyan Caiqiao Caijia Caichi Cailei Caishu Caitian Caiqiong Caixiu Caisha Caizhen Caigong Caizhi Caiyi
 
-Caiwai Caiming Caipo Caiqi Caikang Caisai Caizhuo Caigao Caiao Caiyuan
+Caigen Caiyu Caihua Caichun Caihe Caixue Caixiang Caiyou Caijiao Caifeng Caiting Caixia Caiteng Caijie Caikuan
 
-Caining Caizhai Caizha Caishuang Caiping Caijuan Caijun Cairen Caizhu Caipan
-
-Caidi Caixu Caidou Caiseng Caien Caifen Caiman Cairui Cairao Caichong
-
-Caikuo Caifei Caiye Caisi Caihuai Caie Caiyin Caize Caihun Caihai
-
-Caixing Caizhun Caichuang Caiwa Caibang Caizhao Caizhang Caiguo Caibo   Caiqian
-
-Caishai Caiyao Cairu Caihui Caimiao Caicen Caitang Caipai Caihang Caiqing
-
-Caimin Caikai Caishao Caizong Caimu Caitong Caichu Caicong Caigou Caijin
-
-Cairuo Cainun Caixun Caimeng Caibin Caidui Caiyong Caisen Caicheng Caimou
-
-Caiyun Caiduan Caihan Caiquan Caiwu Caizi Caiai Caicai Caisui Caibing
-
-Caichang Caimei Caiguang Caishen Caina Caishun Caicun Caijiang Caizhuai Caihuan
-
-Caisu Caisong Caiyan Caiqiao Caidu Caijia Caichi Cailei Caishu Caitian
-
-Caizun Caiqiong Caixiu Caisha Caigeng Caizhen Caigong Caizhi Caimi Caiyi
-
-Cailan Caigen Caiyu Caihua Caichun Caiji Cailang Caisun Caizheng Caimie
-
-Caihe Caixue Caipei Caixiang Caiqie Caiyou Caige Caiguan Caijiao Caifeng
-
-Caiting Cainai Caixia Caidai Caichan Caiteng Caijie Caizhan Caimian Caikuan
-
-Caigai Caishan Cairan Caizhe Cailu Caiwang Caixuan Caizhong Caihao Caizu
-
-Caigang Caiqiang Cairong Caishe 
+Caishan Caizhe Cailu Caixuan Caizhong Caihao Caiqiang Cairong
