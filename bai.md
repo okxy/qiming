@@ -1,52 +1,26 @@
-bai
+bai  白 拜 百 佰 柏 稗
 ---
 
-Bai Baibi Bairun Baitao Baiyue Bailong Baiwei Baibai Baiban Baishuai
+Bai Bairun Bailong Baiwei Baixi Bainuo Bailing Baide Baiqun Baisheng Baixian Baikun
 
-Baixi Baili Bainuo Bainie Bailing Baide Baiqun Baisheng Baixian Baikun
+Baiou Bainian Baifu Baitai Baidan Bailin Baichuan Bailuo Baipeng Bainan Baixiao Baiqin Baiqu
 
-Baiou Bainian Bailou Baice Baihou Baifu Baitai Baidan Baigu Bailin
+Bailv Baiyang Baiwo Bainu Baichen Baidong Baican Baineng Baian Baike Baifang Bailun Baidao Baiya
 
-Baichuan Baijing Baikuang Bailuo Baipeng Bainan Baixiao Baiqin Baidun Baiqu
+Baizhou Baijiu Baifan Baishuo Baiwen Baixin Baihong Baile Baizeng Baiying Baiheng Baida Baishang Baishi
 
-Baimai Bailv Baiyang Baichao Baiwo Bainu Baichen Baidong Baier Bainiu
+Baiming Baiqi Baikang Baisai Baizhuo Baiao Baiyuan Baining Baizhai Baijuan Baijun Bairen Baizhu Baipan
 
-Baican Baineng Baian Baike Baifang Bailun Baite Baidao Baime Baiya
+Baidi Baiseng Baien Baifen Bairui Baichong Baiye Baisi Baihuai Baiyin Baize 
 
-Baicao Baizhou Baijiu Baiqiu Baifan Baishuo Baiwen Baixin Baihong Baile
+Baixing Baibang Baizhao Baizhang Baiguo Baibo Baiqian Baishai Baiyao Bairu Baihui Baitang Baihang Baiqing
 
-Baizeng Baijian Baiying Baiheng Baiken Baiju Baida Baipu Baishang Baishi
+Baimin Baizong Baitong Baichu Baicong Baijin Baixun Baimeng Baibin Baiyong Baicheng Baimou
 
-Baiwai Baiming Baipo Baiqi Baikang Baisai Baizhuo Baigao Baiao Baiyuan
+Baiyun Baiquan Baiwu Baizi Baicai Baisui Baibing Baichang Baimei Baiguang Baishun Baicun Baijiang
 
-Baining Baizhai Baizha Baishuang Baiping Baijuan Baijun Bairen Baizhu Baipan
+Baisong Baiyan Baiqiao Baidu Baijia Bailei Baishu Baitian Baizun Baiqiong Baisha Baigeng Baizhen Baizhi Baiyi
 
-Baidi Baixu Baidou Baiseng Baien Baifen Baiman Bairui Bairao Baichong
+Baiyu Baihua Baichun Baisun Baizheng Baihe Baixue Baixiang Baiqie Baige Baijiao Baifeng
 
-Baikuo Baifei Baiye Baisi Baihuai Baie Baiyin Baize Baihun Baihai
-
-Baixing Baizhun Baichuang Baiwa Baibang Baizhao Baizhang Baiguo Baibo   Baiqian
-
-Baishai Baiyao Bairu Baihui Baimiao Baicen Baitang Baipai Baihang Baiqing
-
-Baimin Baikai Baishao Baizong Baimu Baitong Baichu Baicong Baigou Baijin
-
-Bairuo Bainun Baixun Baimeng Baibin Baidui Baiyong Baisen Baicheng Baimou
-
-Baiyun Baiduan Baihan Baiquan Baiwu Baizi Baiai Baicai Baisui Baibing
-
-Baichang Baimei Baiguang Baishen Baina Baishun Baicun Baijiang Baizhuai Baihuan
-
-Baisu Baisong Baiyan Baiqiao Baidu Baijia Baichi Bailei Baishu Baitian
-
-Baizun Baiqiong Baixiu Baisha Baigeng Baizhen Baigong Baizhi Baimi Baiyi
-
-Bailan Baigen Baiyu Baihua Baichun Baiji Bailang Baisun Baizheng Baimie
-
-Baihe Baixue Baipei Baixiang Baiqie Baiyou Baige Baiguan Baijiao Baifeng
-
-Baiting Bainai Baixia Baidai Baichan Baiteng Baijie Baizhan Baimian Baikuan
-
-Baigai Baishan Bairan Baizhe Bailu Baiwang Baixuan Baizhong Baihao Baizu
-
-Baigang Baiqiang Bairong Baishe 
+Baiting Baixia Baidai Baiteng Baijie Baizhan Baikuan Baishan Baizhe Bailu Baixuan Baizhong Baiqiang Bairong  

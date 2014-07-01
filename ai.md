@@ -1,52 +1,28 @@
-ai
+ai  爱 艾 蔼
 ---
 
-Ai Aibi Airun Aitao Aiyue Ailong Aiwei Aibai Aiban Aishuai
+Ai Airun Aitao Aiyue Ailong Aiwei Aibai Aishuai Aixi Ailing Aide Aiqun Aixian Aikun
 
-Aixi Aili Ainuo Ainie Ailing Aide Aiqun Aisheng Aixian Aikun
+Ainian Ailou Aifu Aidan Aigu Ailin Aijing Ailuo Aipeng Ainan Aiqin Aiqu
 
-Aiou Ainian Ailou Aice Aihou Aifu Aitai Aidan Aigu Ailin
-
-Aichuan Aijing Aikuang Ailuo Aipeng Ainan Aixiao Aiqin Aidun Aiqu
-
-Aimai Ailv Aiyang Aichao Aiwo Ainu Aichen Aidong Aier Ainiu
-
-Aican Aineng Aian Aike Aifang Ailun Aite Aidao Aime Aiya
+Aimai Aiyang Aichao Aichen Aidong Aineng Aian Aike Aifang Ailun Aite Aiya
 
 Aicao Aizhou Aijiu Aiqiu Aifan Aishuo Aiwen Aixin Aihong Aile
 
 Aizeng Aijian Aiying Aiheng Aiken Aiju Aida Aipu Aishang Aishi
 
-Aiwai Aiming Aipo Aiqi Aikang Aisai Aizhuo Aigao Aiao Aiyuan
+Aiming Aiqi Aikang Aizhuo Aigao Aiao Aiyuan Aining Aiping Aijuan Aijun Airen Aipan
 
-Aining Aizhai Aizha Aishuang Aiping Aijuan Aijun Airen Aizhu Aipan
+Aidi Aixu Aien Aifen Airui Aisi Aiyin Aize Aihun Aihai Aixing Aibang Aizhang Aiguo Aiqian
 
-Aidi Aixu Aidou Aiseng Aien Aifen Aiman Airui Airao Aichong
+Aiyao Airu Aihui Aimiao Aitang Aihang Aiqing Aimin Aizong Aimu Aitong Aichu Aijin
 
-Aikuo Aifei Aiye Aisi Aihuai Aie Aiyin Aize Aihun Aihai
+Airuo Aixun Aimeng Aibin Aiyong Aicheng Aimou Aiyun Aiquan Aiwu Aizi Aicai Aisui Aibing
 
-Aixing Aizhun Aichuang Aiwa Aibang Aizhao Aizhang Aiguo Aibo   Aiqian
+Aichang Aimei Aiguang Aishen Aina Aicun Aijiang Aihuan
 
-Aishai Aiyao Airu Aihui Aimiao Aicen Aitang Aipai Aihang Aiqing
+Aisu Aiyan Aiqiao Aijia Ailei Aishu Aitian Aiqiong Aixiu Aigeng Aizhen Aigong Aizhi Aimi Aiyi
 
-Aimin Aikai Aishao Aizong Aimu Aitong Aichu Aicong Aigou Aijin
+Ailan Aiyu Aihua Aichun Ailang Aisun Aizheng Aihe Aixue Aixiang Aiqie Aiyou Aifeng
 
-Airuo Ainun Aixun Aimeng Aibin Aidui Aiyong Aisen Aicheng Aimou
-
-Aiyun Aiduan Aihan Aiquan Aiwu Aizi Aiai Aicai Aisui Aibing
-
-Aichang Aimei Aiguang Aishen Aina Aishun Aicun Aijiang Aizhuai Aihuan
-
-Aisu Aisong Aiyan Aiqiao Aidu Aijia Aichi Ailei Aishu Aitian
-
-Aizun Aiqiong Aixiu Aisha Aigeng Aizhen Aigong Aizhi Aimi Aiyi
-
-Ailan Aigen Aiyu Aihua Aichun Aiji Ailang Aisun Aizheng Aimie
-
-Aihe Aixue Aipei Aixiang Aiqie Aiyou Aige Aiguan Aijiao Aifeng
-
-Aiting Ainai Aixia Aidai Aichan Aiteng Aijie Aizhan Aimian Aikuan
-
-Aigai Aishan Airan Aizhe Ailu Aiwang Aixuan Aizhong Aihao Aizu
-
-Aigang Aiqiang Airong Aishe 
+Aiting Aixia Aidai Aiteng Aijie Aizhan Aikuan Aishan Aizhe Ailu Aixuan Aizhong Aiqiang Airong  

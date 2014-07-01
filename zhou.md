@@ -1,4 +1,4 @@
-zhou
+zhou  周 州 洲 舟 宙 昼 绉
 ---
 
 Zhou Zhoubi Zhourun Zhoutao Zhouyue Zhoulong Zhouwei Zhoubai Zhouban Zhoushuai
@@ -47,6 +47,4 @@ Zhouhe Zhouxue Zhoupei Zhouxiang Zhouqie Zhouyou Zhouge Zhouguan Zhoujiao Zhoufe
 
 Zhouting Zhounai Zhouxia Zhoudai Zhouchan Zhouteng Zhoujie Zhouzhan Zhoumian Zhoukuan
 
-Zhougai Zhoushan Zhouran Zhouzhe Zhoulu Zhouwang Zhouxuan Zhouzhong Zhouhao Zhouzu
-
-Zhougang Zhouqiang Zhourong Zhoushe 
+Zhoushan Zhouzhe Zhoulu Zhouwang Zhouxuan Zhouzhong Zhouhao  Zhougang Zhouqiang  
