@@ -1,52 +1,22 @@
-chong
+chong  重 充 崇 憧
 ---
 
-Chong Chongbi Chongrun Chongtao Chongyue Chonglong Chongwei Chongbai Chongban Chongshuai
+Chong Chongyue Chongling Chongde Chongsheng Chongnian Chongtai Chonglin
 
-Chongxi Chongli Chongnuo Chongnie Chongling Chongde Chongqun Chongsheng Chongxian Chongkun
+Chongxiao Chongqin Chongyang Chongchen Chongdong Chongneng Chongfang Chongya
 
-Chongou Chongnian Chonglou Chongce Chonghou Chongfu Chongtai Chongdan Chonggu Chonglin
+Chongjiu Chongwen Chongxin  Chongying Chongming Chongkang Chongning Chongjuan Chongjun Chongren 
 
-Chongchuan Chongjing Chongkuang Chongluo Chongpeng Chongnan Chongxiao Chongqin Chongdun Chongqu
+Chongxu Chongfen Chongrui Chongye Chonghuai Chongyin Chongwa Chongguo Chongbo 
 
-Chongmai Chonglv Chongyang Chongchao Chongwo Chongnu Chongchen Chongdong Chonger Chongniu
+Chongru Chonghui Chongtang Chonghang Chongqing Chongmin Chongkai Chongtong 
 
-Chongcan Chongneng Chongan Chongke Chongfang Chonglun Chongte Chongdao Chongme Chongya
+Chongruo Chongxun Chongmeng Chongbin Chongyong Chonghan Chongquan 
 
-Chongcao Chongzhou Chongjiu Chongqiu Chongfan Chongshuo Chongwen Chongxin Chonghong Chongle
+Chongmei Chongshun Chongsu Chongyan Chongqiao Chongjia Chonglei Chongtian
 
-Chongzeng Chongjian Chongying Chongheng Chongken Chongju Chongda Chongpu Chongshang Chongshi
+Chongqiong Chongxiu Chongsha Chonggong Chongzhi Chongyi Chonglan Chonggen Chongyu Chonghua 
 
-Chongwai Chongming Chongpo Chongqi Chongkang Chongsai Chongzhuo Chonggao Chongao Chongyuan
+Chongxue Chongxiang  Chongjiao Chongfeng Chongting Chongxia Chongteng Chongjie Chongzhan Chongkuan
 
-Chongning Chongzhai Chongzha Chongshuang Chongping Chongjuan Chongjun Chongren Chongzhu Chongpan
-
-Chongdi Chongxu Chongdou Chongseng Chongen Chongfen Chongman Chongrui Chongrao Chongchong
-
-Chongkuo Chongfei Chongye Chongsi Chonghuai Chonge Chongyin Chongze Chonghun Chonghai
-
-Chongxing Chongzhun Chongchuang Chongwa Chongbang Chongzhao Chongzhang Chongguo Chongbo   Chongqian
-
-Chongshai Chongyao Chongru Chonghui Chongmiao Chongcen Chongtang Chongpai Chonghang Chongqing
-
-Chongmin Chongkai Chongshao Chongzong Chongmu Chongtong Chongchu Chongcong Chonggou Chongjin
-
-Chongruo Chongnun Chongxun Chongmeng Chongbin Chongdui Chongyong Chongsen Chongcheng Chongmou
-
-Chongyun Chongduan Chonghan Chongquan Chongwu Chongzi Chongai Chongcai Chongsui Chongbing
-
-Chongchang Chongmei Chongguang Chongshen Chongna Chongshun Chongcun Chongjiang Chongzhuai Chonghuan
-
-Chongsu Chongsong Chongyan Chongqiao Chongdu Chongjia Chongchi Chonglei Chongshu Chongtian
-
-Chongzun Chongqiong Chongxiu Chongsha Chonggeng Chongzhen Chonggong Chongzhi Chongmi Chongyi
-
-Chonglan Chonggen Chongyu Chonghua Chongchun Chongji Chonglang Chongsun Chongzheng Chongmie
-
-Chonghe Chongxue Chongpei Chongxiang Chongqie Chongyou Chongge Chongguan Chongjiao Chongfeng
-
-Chongting Chongnai Chongxia Chongdai Chongchan Chongteng Chongjie Chongzhan Chongmian Chongkuan
-
-Chonggai Chongshan Chongran Chongzhe Chonglu Chongwang Chongxuan Chongzhong Chonghao Chongzu
-
-Chonggang Chongqiang Chongrong Chongshe 
+Chongshan Chongzhe Chongwang Chongqiang
