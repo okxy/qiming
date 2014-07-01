@@ -1,11 +1,9 @@
-zhe
+zhe  者 哲 喆 浙 柘 赭
 ---
 
-Zhe Zhebi Zherun Zhetao Zheyue Zhelong Zhewei Zhebai Zheban Zheshuai
+Zhe Zhetao Zheyue Zhelong Zhewei Zheshuai Zhexi ZheliZheling Zhequn Zhesheng Zhexian Zhekun
 
-Zhexi Zheli Zhenuo Zhenie Zheling Zhede Zhequn Zhesheng Zhexian Zhekun
-
-Zheou Zhenian Zhelou Zhece Zhehou Zhefu Zhetai Zhedan Zhegu Zhelin
+Zhenian Zhefu Zhetai Zhedan Zhegu Zhelin
 
 Zhechuan Zhejing Zhekuang Zheluo Zhepeng Zhenan Zhexiao Zheqin Zhedun Zhequ
 
@@ -27,17 +25,13 @@ Zhekuo Zhefei Zheye Zhesi Zhehuai Zhee Zheyin Zheze Zhehun Zhehai
 
 Zhexing Zhezhun Zhechuang Zhewa Zhebang Zhezhao Zhezhang Zheguo Zhebo   Zheqian
 
-Zheshai Zheyao Zheru Zhehui Zhemiao Zhecen Zhetang Zhepai Zhehang Zheqing
+Zheshai Zheyao Zheru Zhehui Zhemiao Zhecen Zhetang Zheqing
 
-Zhemin Zhekai Zheshao Zhezong Zhemu Zhetong Zhechu Zhecong Zhegou Zhejin
+Zhemin Zhekai Zheshao Zhezong Zhetong Zhecong Zhejin Zhexun Zhemeng Zhebin Zhedui Zheyong Zhesen 
 
-Zheruo Zhenun Zhexun Zhemeng Zhebin Zhedui Zheyong Zhesen Zhecheng Zhemou
+Zheyun Zhequan Zhecai Zhebing Zhemei Zheguang Zheshen Zhena Zheshun Zhecun Zhejiang Zhezhuai Zhehuan
 
-Zheyun Zheduan Zhehan Zhequan Zhewu Zhezi Zheai Zhecai Zhesui Zhebing
-
-Zhechang Zhemei Zheguang Zheshen Zhena Zheshun Zhecun Zhejiang Zhezhuai Zhehuan
-
-Zhesu Zhesong Zheyan Zheqiao Zhedu Zhejia Zhechi Zhelei Zheshu Zhetian
+Zhesu Zhesong Zheyan Zheqiao Zhedu Zhejia Zhelei Zheshu 
 
 Zhezun Zheqiong Zhexiu Zhesha Zhegeng Zhezhen Zhegong Zhezhi Zhemi Zheyi
 
@@ -47,6 +41,4 @@ Zhehe Zhexue Zhepei Zhexiang Zheqie Zheyou Zhege Zheguan Zhejiao Zhefeng
 
 Zheting Zhenai Zhexia Zhedai Zhechan Zheteng Zhejie Zhezhan Zhemian Zhekuan
 
-Zhegai Zheshan Zheran Zhezhe Zhelu Zhewang Zhexuan Zhezhong Zhehao Zhezu
-
-Zhegang Zheqiang Zherong Zheshe 
+Zhegai Zheshan Zheran Zhezhe Zhelu Zhewang Zhexuan Zhezhong Zhehao Zheqiang Zherong  
