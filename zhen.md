@@ -1,52 +1,24 @@
-zhen
+zhen  真 桢 珍 振 贞 斟 箴 臻 祯 镇 
 ---
 
-Zhen Zhenbi Zhenrun Zhentao Zhenyue Zhenlong Zhenwei Zhenbai Zhenban Zhenshuai
+Zhen Zhentao Zhenyue Zhenwei Zhenxi Zhenli Zhenling Zhende Zhenqun Zhensheng Zhenxian Zhenkun
 
-Zhenxi Zhenli Zhennuo Zhennie Zhenling Zhende Zhenqun Zhensheng Zhenxian Zhenkun
+Zhennian Zhence Zhenhou Zhenfu Zhendan Zhenlin Zhenpeng Zhennan Zhenqin Zhenqu
 
-Zhenou Zhennian Zhenlou Zhence Zhenhou Zhenfu Zhentai Zhendan Zhengu Zhenlin
+Zhenyang Zhenchao Zhenwo Zhenchen Zhendong Zhencan Zhenke Zhenfang Zhendao Zhenya
 
-Zhenchuan Zhenjing Zhenkuang Zhenluo Zhenpeng Zhennan Zhenxiao Zhenqin Zhendun Zhenqu
+Zhenzhou Zhenjiu Zhenfan Zhenxin Zhenhong Zhenle Zhenzeng Zhenying Zhenheng Zhenju Zhenda Zhenpu
 
-Zhenmai Zhenlv Zhenyang Zhenchao Zhenwo Zhennu Zhenchen Zhendong Zhener Zhenniu
+Zhenming Zhenqi Zhenkang Zhensai Zhenzhuo Zhenyuan Zhenning Zhenshuang Zhenjuan Zhenjun
 
-Zhencan Zhenneng Zhenan Zhenke Zhenfang Zhenlun Zhente Zhendao Zhenme Zhenya
+Zhendi Zhenxu Zhenen Zhenfen Zhenrui Zhenze Zhenhai Zhenxing Zhenbang Zhenzhao Zhenguo Zhenbo  Zhenqian
 
-Zhencao Zhenzhou Zhenjiu Zhenqiu Zhenfan Zhenshuo Zhenwen Zhenxin Zhenhong Zhenle
+Zhenyao Zhenhui Zhenmiao Zhencen Zhentang Zhenhang Zhenqing Zhenmin Zhenkai Zhenzong Zhentong Zhencong Zhenjin
 
-Zhenzeng Zhenjian Zhenying Zhenheng Zhenken Zhenju Zhenda Zhenpu Zhenshang Zhenshi
+Zhenruo Zhenbin Zhenyong Zhenyun Zhenzi Zhencai Zhensui Zhenmei Zhenna Zhenshun Zhenjiang Zhenhuan
 
-Zhenwai Zhenming Zhenpo Zhenqi Zhenkang Zhensai Zhenzhuo Zhengao Zhenao Zhenyuan
+Zhenyan Zhenqiao Zhenjia Zhenlei Zhenshu Zhentian Zhenzhen Zhenzhi Zhenyi
 
-Zhenning Zhenzhai Zhenzha Zhenshuang Zhenping Zhenjuan Zhenjun Zhenren Zhenzhu Zhenpan
+Zhenlan Zhenyu Zhenhua Zhenji Zhenhe Zhenxue Zhenxiang Zhenyou Zhenjiao Zhenfeng
 
-Zhendi Zhenxu Zhendou Zhenseng Zhenen Zhenfen Zhenman Zhenrui Zhenrao Zhenchong
-
-Zhenkuo Zhenfei Zhenye Zhensi Zhenhuai Zhene Zhenyin Zhenze Zhenhun Zhenhai
-
-Zhenxing Zhenzhun Zhenchuang Zhenwa Zhenbang Zhenzhao Zhenzhang Zhenguo Zhenbo   Zhenqian
-
-Zhenshai Zhenyao Zhenru Zhenhui Zhenmiao Zhencen Zhentang Zhenpai Zhenhang Zhenqing
-
-Zhenmin Zhenkai Zhenshao Zhenzong Zhenmu Zhentong Zhenchu Zhencong Zhengou Zhenjin
-
-Zhenruo Zhennun Zhenxun Zhenmeng Zhenbin Zhendui Zhenyong Zhensen Zhencheng Zhenmou
-
-Zhenyun Zhenduan Zhenhan Zhenquan Zhenwu Zhenzi Zhenai Zhencai Zhensui Zhenbing
-
-Zhenchang Zhenmei Zhenguang Zhenshen Zhenna Zhenshun Zhencun Zhenjiang Zhenzhuai Zhenhuan
-
-Zhensu Zhensong Zhenyan Zhenqiao Zhendu Zhenjia Zhenchi Zhenlei Zhenshu Zhentian
-
-Zhenzun Zhenqiong Zhenxiu Zhensha Zhengeng Zhenzhen Zhengong Zhenzhi Zhenmi Zhenyi
-
-Zhenlan Zhengen Zhenyu Zhenhua Zhenchun Zhenji Zhenlang Zhensun Zhenzheng Zhenmie
-
-Zhenhe Zhenxue Zhenpei Zhenxiang Zhenqie Zhenyou Zhenge Zhenguan Zhenjiao Zhenfeng
-
-Zhenting Zhennai Zhenxia Zhendai Zhenchan Zhenteng Zhenjie Zhenzhan Zhenmian Zhenkuan
-
-Zhengai Zhenshan Zhenran Zhenzhe Zhenlu Zhenwang Zhenxuan Zhenzhong Zhenhao Zhenzu
-
-Zhengang Zhenqiang Zhenrong Zhenshe 
+Zhenting Zhenjie Zhenshan Zhenzhe Zhenzhong Zhenhao Zhenzu Zhengang Zhenqiang Zhenshe 
