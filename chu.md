@@ -1,52 +1,24 @@
-chu
+chu  处 除 楚 褚
 ---
 
-Chu Chubi Churun Chutao Chuyue Chulong Chuwei Chubai Chuban Chushuai
+Chu Chuyue Chuxi Chunuo Chuling Chude Chusheng Chuxian Chunian Chutai Chudan Chulin
 
-Chuxi Chuli Chunuo Chunie Chuling Chude Chuqun Chusheng Chuxian Chukun
+Chuluo Chunan Chuxiao Chuqin Chuyang Chuchen Chuneng Chufang Chudao Chuya
 
-Chuou Chunian Chulou Chuce Chuhou Chufu Chutai Chudan Chugu Chulin
+Chufan Chushuo Chuwen Chuxin Chuhong Chujian Chuju Chushang Chushi
 
-Chuchuan Chujing Chukuang Chuluo Chupeng Chunan Chuxiao Chuqin Chudun Chuqu
+Chuming Chuqi Chukang Chuzhuo Chuyuan Chuning Chuping Chujun Churen 
 
-Chumai Chulv Chuyang Chuchao Chuwo Chunu Chuchen Chudong Chuer Chuniu
+Chudi Chuxu Chuen Churui Chufei Chusi Chuyin Chuze Chuhun Chuhai
 
-Chucan Chuneng Chuan Chuke Chufang Chulun Chute Chudao Chume Chuya
+Chuxing Chuzhang Chuguo Chubo Chuyao Chuhui Chutang Chuhang Chuqing
 
-Chucao Chuzhou Chujiu Chuqiu Chufan Chushuo Chuwen Chuxin Chuhong Chule
+Chumin Chutong Chucong Churuo Chuxun Chumeng Chubin Chuyong Chusen 
 
-Chuzeng Chujian Chuying Chuheng Chuken Chuju Chuda Chupu Chushang Chushi
+Chuyun Chuhan Chuai Chucai Chumei Chuguang Chushen Chujiang Chuhuan
 
-Chuwai Chuming Chupo Chuqi Chukang Chusai Chuzhuo Chugao Chuao Chuyuan
+Chusong Chuyan Chuqiao Chujia Chutian Chuzun Chuqiong Chuxiu Chuzhen Chuyi
 
-Chuning Chuzhai Chuzha Chushuang Chuping Chujuan Chujun Churen Chuzhu Chupan
+Chulan Chugen Chuyu Chuhua Chuzheng Chuhe Chuxue Chuxiang Chujiao Chufeng
 
-Chudi Chuxu Chudou Chuseng Chuen Chufen Chuman Churui Churao Chuchong
-
-Chukuo Chufei Chuye Chusi Chuhuai Chue Chuyin Chuze Chuhun Chuhai
-
-Chuxing Chuzhun Chuchuang Chuwa Chubang Chuzhao Chuzhang Chuguo Chubo   Chuqian
-
-Chushai Chuyao Churu Chuhui Chumiao Chucen Chutang Chupai Chuhang Chuqing
-
-Chumin Chukai Chushao Chuzong Chumu Chutong Chuchu Chucong Chugou Chujin
-
-Churuo Chunun Chuxun Chumeng Chubin Chudui Chuyong Chusen Chucheng Chumou
-
-Chuyun Chuduan Chuhan Chuquan Chuwu Chuzi Chuai Chucai Chusui Chubing
-
-Chuchang Chumei Chuguang Chushen Chuna Chushun Chucun Chujiang Chuzhuai Chuhuan
-
-Chusu Chusong Chuyan Chuqiao Chudu Chujia Chuchi Chulei Chushu Chutian
-
-Chuzun Chuqiong Chuxiu Chusha Chugeng Chuzhen Chugong Chuzhi Chumi Chuyi
-
-Chulan Chugen Chuyu Chuhua Chuchun Chuji Chulang Chusun Chuzheng Chumie
-
-Chuhe Chuxue Chupei Chuxiang Chuqie Chuyou Chuge Chuguan Chujiao Chufeng
-
-Chuting Chunai Chuxia Chudai Chuchan Chuteng Chujie Chuzhan Chumian Chukuan
-
-Chugai Chushan Churan Chuzhe Chulu Chuwang Chuxuan Chuzhong Chuhao Chuzu
-
-Chugang Chuqiang Churong Chushe 
+Chuting Chuxia Chudai Chuchan Chujie Chuzhan Chukuan Chushan Chuzhe Chulu Chuxuan Chuhao Chuqiang Churong 
