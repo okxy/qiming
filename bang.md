@@ -1,7 +1,7 @@
-bang
+bang  帮 榜 邦 浜 
 ---
 
-Bang Bangbi Bangrun Bangtao Bangyue Banglong Bangwei Bangbai Bangban Bangshuai
+Bangrun Bangyue Banglong Bangwei Bangbai Bangban Bangshuai
 
 Bangxi Bangli Bangnuo Bangnie Bangling Bangde Bangqun Bangsheng Bangxian Bangkun
 
@@ -27,26 +27,23 @@ Bangkuo Bangfei Bangye Bangsi Banghuai Bange Bangyin Bangze Banghun Banghai
 
 Bangxing Bangzhun Bangchuang Bangwa Bangbang Bangzhao Bangzhang Bangguo Bangbo   Bangqian
 
-Bangshai Bangyao Bangru Banghui Bangmiao Bangcen Bangtang Bangpai Banghang Bangqing
+Bangyao Bangmiao Bangcen Bangtang Bangpai Banghang Bangqing
 
-Bangmin Bangkai Bangshao Bangzong Bangmu Bangtong Bangchu Bangcong Banggou Bangjin
+Bangmin Bangchu Bangcong Bangjin
 
-Bangruo Bangnun Bangxun Bangmeng Bangbin Bangdui Bangyong Bangsen Bangcheng Bangmou
+Bangxun Bangsen Bangcheng Bangyun 
 
-Bangyun Bangduan Banghan Bangquan Bangwu Bangzi Bangai Bangcai Bangsui Bangbing
+Bangchang Bangmei Bangcun 
 
-Bangchang Bangmei Bangguang Bangshen Bangna Bangshun Bangcun Bangjiang Bangzhuai Banghuan
+Bangsu Bangqiao Bangjia Bangshu 
 
-Bangsu Bangsong Bangyan Bangqiao Bangdu Bangjia Bangchi Banglei Bangshu Bangtian
+Bangqiong Bangxiu Bangzhen Bangzhi 
 
-Bangzun Bangqiong Bangxiu Bangsha Banggeng Bangzhen Banggong Bangzhi Bangmi Bangyi
+Bangyu Banghua 
 
-Banglan Banggen Bangyu Banghua Bangchun Bangji Banglang Bangsun Bangzheng Bangmie
+Banghe  Bangjiao Bangfeng
 
-Banghe Bangxue Bangpei Bangxiang Bangqie Bangyou Bangge Bangguan Bangjiao Bangfeng
+Bangteng Bangjie 
 
-Bangting Bangnai Bangxia Bangdai Bangchan Bangteng Bangjie Bangzhan Bangmian Bangkuan
 
-Banggai Bangshan Bangran Bangzhe Banglu Bangwang Bangxuan Bangzhong Banghao Bangzu
 
-Banggang Bangqiang Bangrong Bangshe 
