@@ -1,52 +1,30 @@
-an
+an  安 岸 谙
 ---
 
-An Anbi Anrun Antao Anyue Anlong Anwei Anbai Anban Anshuai
+An Anrun Antao Anyue Anlong Anwei Anxi Anling Anqun Ansheng Anxian Ankun
 
-Anxi Anli Annuo Annie Anling Ande Anqun Ansheng Anxian Ankun
+Annian Anlou Ance Anhou Anfu Antai Andan Angu Anlin Anchuan Anjing Ankuang Anluo Anpeng Annan Anxiao Anqin Andun Anqu
 
-Anou Annian Anlou Ance Anhou Anfu Antai Andan Angu Anlin
+Anyang Anchen Andong Ancan Anneng Anan Anke Anfang Anlun Ante Andao Anme Anya
 
-Anchuan Anjing Ankuang Anluo Anpeng Annan Anxiao Anqin Andun Anqu
+Anjiu Anfan Anshuo Anwen Anxin Anhong Anle Anzeng Anying Anju Anda Anshang Anshi
 
-Anmai Anlv Anyang Anchao Anwo Annu Anchen Andong Aner Anniu
+Anming Anqi Ankang Ansai Anzhuo Angao Anao Anyuan Anning Anzhai Anzha Anshuang Anjun Anren Anzhu 
 
-Ancan Anneng Anan Anke Anfang Anlun Ante Andao Anme Anya
+Andi Anxu Anen Anfen Anman Anrui Anrao Anchong Ankuo Anfei Ansi Anhuai Anyin Anze Anhun Anhai
 
-Ancao Anzhou Anjiu Anqiu Anfan Anshuo Anwen Anxin Anhong Anle
+Anxing Anzhun Anchuang Anwa Anbang Anzhao Anzhang Anguo Anbo Anqian
 
-Anzeng Anjian Anying Anheng Anken Anju Anda Anpu Anshang Anshi
+Anru Anhui Antang Anhang Anqing Anmin Anzong Antong Anchu Ancong Anjin
 
-Anwai Anming Anpo Anqi Ankang Ansai Anzhuo Angao Anao Anyuan
+Anruo Anxun Anmeng Anbin Anyong Ansen Ancheng Anmou
 
-Anning Anzhai Anzha Anshuang Anping Anjuan Anjun Anren Anzhu Anpan
-
-Andi Anxu Andou Anseng Anen Anfen Anman Anrui Anrao Anchong
-
-Ankuo Anfei Anye Ansi Anhuai Ane Anyin Anze Anhun Anhai
-
-Anxing Anzhun Anchuang Anwa Anbang Anzhao Anzhang Anguo Anbo   Anqian
-
-Anshai Anyao Anru Anhui Anmiao Ancen Antang Anpai Anhang Anqing
-
-Anmin Ankai Anshao Anzong Anmu Antong Anchu Ancong Angou Anjin
-
-Anruo Annun Anxun Anmeng Anbin Andui Anyong Ansen Ancheng Anmou
-
-Anyun Anduan Anhan Anquan Anwu Anzi Anai Ancai Ansui Anbing
-
-Anchang Anmei Anguang Anshen Anna Anshun Ancun Anjiang Anzhuai Anhuan
+Anyun Anzi Anai Ancai Ansui Anbing Anmei Anshen Anna Anshun Anjiang Anzhuai Anhuan 
 
 Ansu Ansong Anyan Anqiao Andu Anjia Anchi Anlei Anshu Antian
 
-Anzun Anqiong Anxiu Ansha Angeng Anzhen Angong Anzhi Anmi Anyi
+Anzun Anxiu Angeng Anzhen Angong Anzhi Anyi Anlan Anyu Anhua Anchun Anlang Ansun Anzheng 
 
-Anlan Angen Anyu Anhua Anchun Anji Anlang Ansun Anzheng Anmie
+Anhe Anxue Anxiang Anyou Anjiao Anfeng Anting Anxia Anteng Anjie Anzhan Ankuan
 
-Anhe Anxue Anpei Anxiang Anqie Anyou Ange Anguan Anjiao Anfeng
-
-Anting Annai Anxia Andai Anchan Anteng Anjie Anzhan Anmian Ankuan
-
-Angai Anshan Anran Anzhe Anlu Anwang Anxuan Anzhong Anhao Anzu
-
-Angang Anqiang Anrong Anshe 
+Anshan Anzhe Anlu Anzhong Anzu Anqiang Anrong  
