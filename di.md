@@ -1,52 +1,26 @@
 di 第 弟 帝 蒂 迪
 ---
 
-Di Dibi Dirun Ditao Diyue Dilong Diwei Dibai Diban Dishuai
+Di Diyue Dilong Diwei Dibai Dixi Diling Diqun Disheng Dixian Dikun
 
-Dixi Dili Dinuo Dinie Diling Dide Diqun Disheng Dixian Dikun
+Diou Dinian Difu Ditai Didan Dilin Dijing Dipeng Dinan Diqin Diqu
 
-Diou Dinian Dilou Dice Dihou Difu Ditai Didan Digu Dilin
+Dimai Diyang Dichao Dineng Dian Dike Difang Dilun Diya
 
-Dichuan Dijing Dikuang Diluo Dipeng Dinan Dixiao Diqin Didun Diqu
+Dizhou Dijiu Difan Dishuo Diwen Dixin Dihong Dile Dijian Diying Diken
 
-Dimai Dilv Diyang Dichao Diwo Dinu Dichen Didong Dier Diniu
+Diming Diqi Dikang Disai Dizhuo Diao Diyuan Dining Dishuang Diping Dijun Diren
 
-Dican Dineng Dian Dike Difang Dilun Dite Didao Dime Diya
+Dixu Dien Difen Diman Dirui Diye Diyin Dize Dihai Dixing Dibang Dizhang Diguo Diqian
 
-Dicao Dizhou Dijiu Diqiu Difan Dishuo Diwen Dixin Dihong Dile
+Diyao Dihui Dimiao Ditang Dihang Diqing Dimin Dikai Dimu Ditong Dicong Dijin
 
-Dizeng Dijian Diying Diheng Diken Diju Dida Dipu Dishang Dishi
+Diruo Dixun Dimeng Dibin Diyong Disen Dicheng Dimou Diyun Diquan Diai Dicai
 
-Diwai Diming Dipo Diqi Dikang Disai Dizhuo Digao Diao Diyuan
+Dimei Diguang Dishen Dina Dicun Dijiang Dihuan Disong Diyan Diqiao Dijia Dilei Dishu Ditian
 
-Dining Dizhai Dizha Dishuang Diping Dijuan Dijun Diren Dizhu Dipan
+Dizun Diqiong Dixiu Disha Dizhi Dimi Diyi Dilan Digen Diyu Dihua Dichun
 
-Didi Dixu Didou Diseng Dien Difen Diman Dirui Dirao Dichong
+Dixue Dipei Dixiang Diqie Diyou Dige Diguan Dijiao Difeng Diting Dixia Diteng Dijie Dizhan Dikuan
 
-Dikuo Difei Diye Disi Dihuai Die Diyin Dize Dihun Dihai
-
-Dixing Dizhun Dichuang Diwa Dibang Dizhao Dizhang Diguo Dibo   Diqian
-
-Dishai Diyao Diru Dihui Dimiao Dicen Ditang Dipai Dihang Diqing
-
-Dimin Dikai Dishao Dizong Dimu Ditong Dichu Dicong Digou Dijin
-
-Diruo Dinun Dixun Dimeng Dibin Didui Diyong Disen Dicheng Dimou
-
-Diyun Diduan Dihan Diquan Diwu Dizi Diai Dicai Disui Dibing
-
-Dichang Dimei Diguang Dishen Dina Dishun Dicun Dijiang Dizhuai Dihuan
-
-Disu Disong Diyan Diqiao Didu Dijia Dichi Dilei Dishu Ditian
-
-Dizun Diqiong Dixiu Disha Digeng Dizhen Digong Dizhi Dimi Diyi
-
-Dilan Digen Diyu Dihua Dichun Diji Dilang Disun Dizheng Dimie
-
-Dihe Dixue Dipei Dixiang Diqie Diyou Dige Diguan Dijiao Difeng
-
-Diting Dinai Dixia Didai Dichan Diteng Dijie Dizhan Dimian Dikuan
-
-Digai Dishan Diran Dizhe Dilu Diwang Dixuan Dizhong Dihao Dizu
-
-Digang Diqiang Dirong Dishe 
+Dishan Dizhe Dilu Dixuan Dizhong Dihao Diqiang Dirong
