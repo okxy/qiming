@@ -1,52 +1,20 @@
-fan
+fan 范 凡 帆 樊 泛 繁 蕃
 ---
 
-Fan Fanbi Fanrun Fantao Fanyue Fanlong Fanwei Fanbai Fanban Fanshuai
+Fan  Fanyue Fanlong Fanwei Fanxi Fanling Fande Fanqun Fansheng Fanxian Fankun
 
-Fanxi Fanli Fannuo Fannie Fanling Fande Fanqun Fansheng Fanxian Fankun
+Fandan Fanlin Fanjing Fanluo Fanpeng Fannan Fanxiao Fanqin Fanqu Fanyang Fanchao Fanchen Fandong Fanniu
 
-Fanou Fannian Fanlou Fance Fanhou Fanfu Fantai Fandan Fangu Fanlin
+Fancan Fanfang Fanlun Fanme Fanya Fanfan Fanshuo Fanwen Fanxin Fanying Fanshi
 
-Fanchuan Fanjing Fankuang Fanluo Fanpeng Fannan Fanxiao Fanqin Fandun Fanqu
+Fanming Fanqi Fankang Fanzhuo Fanyuan Fanning Fanshuang Fanping Fanjun Fanxu Fanen Fanfen Fanrui Fansi Fanyin 
 
-Fanmai Fanlv Fanyang Fanchao Fanwo Fannu Fanchen Fandong Faner Fanniu
+Fanze Fanhun Fanhai Fanxing Fanchuang Fanbang Fanyao Fanru Fanhui Fanmiao Fanhang Fanqing
 
-Fancan Fanneng Fanan Fanke Fanfang Fanlun Fante Fandao Fanme Fanya
+Fanmin Fanzong Fantong Fanjin Fanruo Fanxun Fanmeng Fanbin Fanyong Fansen Fanmou
 
-Fancao Fanzhou Fanjiu Fanqiu Fanfan Fanshuo Fanwen Fanxin Fanhong Fanle
+Fanyun Fanquan Fanzi Fanmei Fanshen Fancun Fanjiang Fansu Fansong Fanyan Fanqiao Fanjia Fanlei 
 
-Fanzeng Fanjian Fanying Fanheng Fanken Fanju Fanda Fanpu Fanshang Fanshi
+Fanzun Fanqiong Fanxiu Fansha Fangeng Fangong Fanmi Fanyi Fanlan Fanyu Fanhua Fanlang Fanzheng
 
-Fanwai Fanming Fanpo Fanqi Fankang Fansai Fanzhuo Fangao Fanao Fanyuan
-
-Fanning Fanzhai Fanzha Fanshuang Fanping Fanjuan Fanjun Fanren Fanzhu Fanpan
-
-Fandi Fanxu Fandou Fanseng Fanen Fanfen Fanman Fanrui Fanrao Fanchong
-
-Fankuo Fanfei Fanye Fansi Fanhuai Fane Fanyin Fanze Fanhun Fanhai
-
-Fanxing Fanzhun Fanchuang Fanwa Fanbang Fanzhao Fanzhang Fanguo Fanbo   Fanqian
-
-Fanshai Fanyao Fanru Fanhui Fanmiao Fancen Fantang Fanpai Fanhang Fanqing
-
-Fanmin Fankai Fanshao Fanzong Fanmu Fantong Fanchu Fancong Fangou Fanjin
-
-Fanruo Fannun Fanxun Fanmeng Fanbin Fandui Fanyong Fansen Fancheng Fanmou
-
-Fanyun Fanduan Fanhan Fanquan Fanwu Fanzi Fanai Fancai Fansui Fanbing
-
-Fanchang Fanmei Fanguang Fanshen Fanna Fanshun Fancun Fanjiang Fanzhuai Fanhuan
-
-Fansu Fansong Fanyan Fanqiao Fandu Fanjia Fanchi Fanlei Fanshu Fantian
-
-Fanzun Fanqiong Fanxiu Fansha Fangeng Fanzhen Fangong Fanzhi Fanmi Fanyi
-
-Fanlan Fangen Fanyu Fanhua Fanchun Fanji Fanlang Fansun Fanzheng Fanmie
-
-Fanhe Fanxue Fanpei Fanxiang Fanqie Fanyou Fange Fanguan Fanjiao Fanfeng
-
-Fanting Fannai Fanxia Fandai Fanchan Fanteng Fanjie Fanzhan Fanmian Fankuan
-
-Fangai Fanshan Fanran Fanzhe Fanlu Fanwang Fanxuan Fanzhong Fanhao Fanzu
-
-Fangang Fanqiang Fanrong Fanshe 
+Fanxue Fanxiang Fanjiao Fanfeng Fanting Fanxia Fanteng Fanjie Fanshan Fanzhe Fanlu Fanxuan Fanzhong Fanqiang Fanrong 

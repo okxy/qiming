@@ -1,52 +1,26 @@
-dong
+dong 动 东 洞 冬 董 栋 苳
 ---
 
-Dong Dongbi Dongrun Dongtao Dongyue Donglong Dongwei Dongbai Dongban Dongshuai
+Dong Dongrun Dongyue Dongwei Dongxi Dongli Dongling Dongde Dongqun Dongxian Dongkun
 
-Dongxi Dongli Dongnuo Dongnie Dongling Dongde Dongqun Dongsheng Dongxian Dongkun
+Dongnian Dongce Dongfu Dongtai Dongdan Donglin Dongchuan Dongluo Dongpeng Dongqin
 
-Dongou Dongnian Donglou Dongce Donghou Dongfu Dongtai Dongdan Donggu Donglin
+Dongyang Dongchao Dongchen Dongdong Dongan Dongfang Dongdao Dongya
 
-Dongchuan Dongjing Dongkuang Dongluo Dongpeng Dongnan Dongxiao Dongqin Dongdun Dongqu
+Dongzhou Dongjiu Dongfan Dongshuo Dongwen Dongxin Donghong Dongle Dongjian Dongying Dongju Dongda Dongshi
 
-Dongmai Donglv Dongyang Dongchao Dongwo Dongnu Dongchen Dongdong Donger Dongniu
+Dongming Dongqi Dongkang Dongsai Dongzhuo Dongyuan Dongning Dongping Dongjuan Dongjun Dongren
 
-Dongcan Dongneng Dongan Dongke Dongfang Donglun Dongte Dongdao Dongme Dongya
+Dongdi Dongxu Dongen Dongfen Dongrui Dongrao Dongfei Dongye Dongsi Donghuai Dongze Donghai
 
-Dongcao Dongzhou Dongjiu Dongqiu Dongfan Dongshuo Dongwen Dongxin Donghong Dongle
+Dongxing Dongchuang Dongzhao Dongzhang Dongguo Dongyao Dongru Donghui Dongmiao Dongtang Dongqing
 
-Dongzeng Dongjian Dongying Dongheng Dongken Dongju Dongda Dongpu Dongshang Dongshi
+Dongmin Dongkai Dongshao Dongtong Dongchu Dongjin Dongruo Dongxun Dongmeng Dongbin Dongyong Dongsen Dongcheng Dongmou
 
-Dongwai Dongming Dongpo Dongqi Dongkang Dongsai Dongzhuo Donggao Dongao Dongyuan
+Dongyun Donghan Dongquan Dongzi Dongai Dongcai Dongmei Dongshen Dongna Dongjiang Donghuan
 
-Dongning Dongzhai Dongzha Dongshuang Dongping Dongjuan Dongjun Dongren Dongzhu Dongpan
+Dongyan Dongqiao Dongjia Donglei Dongshu Dongtian Dongxiu Dongsha Dongzhen Dongzhi Dongyi
 
-Dongdi Dongxu Dongdou Dongseng Dongen Dongfen Dongman Dongrui Dongrao Dongchong
+Donglan Donggen Dongyu Donghua Dongzheng Donghe Dongxiang Dongyou Dongjiao Dongfeng
 
-Dongkuo Dongfei Dongye Dongsi Donghuai Donge Dongyin Dongze Donghun Donghai
-
-Dongxing Dongzhun Dongchuang Dongwa Dongbang Dongzhao Dongzhang Dongguo Dongbo   Dongqian
-
-Dongshai Dongyao Dongru Donghui Dongmiao Dongcen Dongtang Dongpai Donghang Dongqing
-
-Dongmin Dongkai Dongshao Dongzong Dongmu Dongtong Dongchu Dongcong Donggou Dongjin
-
-Dongruo Dongnun Dongxun Dongmeng Dongbin Dongdui Dongyong Dongsen Dongcheng Dongmou
-
-Dongyun Dongduan Donghan Dongquan Dongwu Dongzi Dongai Dongcai Dongsui Dongbing
-
-Dongchang Dongmei Dongguang Dongshen Dongna Dongshun Dongcun Dongjiang Dongzhuai Donghuan
-
-Dongsu Dongsong Dongyan Dongqiao Dongdu Dongjia Dongchi Donglei Dongshu Dongtian
-
-Dongzun Dongqiong Dongxiu Dongsha Donggeng Dongzhen Donggong Dongzhi Dongmi Dongyi
-
-Donglan Donggen Dongyu Donghua Dongchun Dongji Donglang Dongsun Dongzheng Dongmie
-
-Donghe Dongxue Dongpei Dongxiang Dongqie Dongyou Dongge Dongguan Dongjiao Dongfeng
-
-Dongting Dongnai Dongxia Dongdai Dongchan Dongteng Dongjie Dongzhan Dongmian Dongkuan
-
-Donggai Dongshan Dongran Dongzhe Donglu Dongwang Dongxuan Dongzhong Donghao Dongzu
-
-Donggang Dongqiang Dongrong Dongshe 
+Dongting Dongxia Dongteng Dongjie Dongshan Dongzhe Donglu Dongxuan Dongzhong Donghao Dongqiang Dongrong
