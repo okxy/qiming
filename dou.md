@@ -1,52 +1,20 @@
-dou
+dou  都 兜 窦 豆
 ---
 
-Dou Doubi Dourun Doutao Douyue Doulong Douwei Doubai Douban Doushuai
+Dou Doulong Douwei Douban Douxi Douli Douling Douqun Dousheng Douxian Doukun
 
-Douxi Douli Dounuo Dounie Douling Doude Douqun Dousheng Douxian Doukun
+Doufu Doutai Doulin Doujing Doupeng Douxiao Douqin Doumai Douyang Douchao Douchen
 
-Douou Dounian Doulou Douce Douhou Doufu Doutai Doudan Dougu Doulin
+Douneng Douan Doufang Douya Douqiu Doufan Doushuo Douwen Douxin Douhong 
 
-Douchuan Doujing Doukuang Douluo Doupeng Dounan Douxiao Douqin Doudun Douqu
+Douying Douda Douming Douqi Doukang Douzhuo Douyuan Douning Doujuan Doudi Douxu Douen Doufen Dourui 
 
-Doumai Doulv Douyang Douchao Douwo Dounu Douchen Doudong Douer Douniu
+Douze Douhai Douxing Doubang Douguo Douyao Douhui Doumiao Doutang Douhang Doumin Doukai Doumu Doutong Doucong Doujin
 
-Doucan Douneng Douan Douke Doufang Doulun Doute Doudao Doume Douya
+Douxun Doubin Douyong Dousen Doucheng Doumou Douyun Douquan Doucai Dousui Doubing
 
-Doucao Douzhou Doujiu Douqiu Doufan Doushuo Douwen Douxin Douhong Doule
+Doumei Doujiang Douhuan Dousong Douyan Douqiao Doujia Doulei Doutian
 
-Douzeng Doujian Douying Douheng Douken Douju Douda Doupu Doushang Doushi
+Douzun Douqiong Dousha Dougong Douyi Doulan Douyu Douhua Douxue Douxiang Douyou Doujiao Doufeng
 
-Douwai Douming Doupo Douqi Doukang Dousai Douzhuo Dougao Douao Douyuan
-
-Douning Douzhai Douzha Doushuang Douping Doujuan Doujun Douren Douzhu Doupan
-
-Doudi Douxu Doudou Douseng Douen Doufen Douman Dourui Dourao Douchong
-
-Doukuo Doufei Douye Dousi Douhuai Doue Douyin Douze Douhun Douhai
-
-Douxing Douzhun Douchuang Douwa Doubang Douzhao Douzhang Douguo Doubo   Douqian
-
-Doushai Douyao Douru Douhui Doumiao Doucen Doutang Doupai Douhang Douqing
-
-Doumin Doukai Doushao Douzong Doumu Doutong Douchu Doucong Dougou Doujin
-
-Douruo Dounun Douxun Doumeng Doubin Doudui Douyong Dousen Doucheng Doumou
-
-Douyun Douduan Douhan Douquan Douwu Douzi Douai Doucai Dousui Doubing
-
-Douchang Doumei Douguang Doushen Douna Doushun Doucun Doujiang Douzhuai Douhuan
-
-Dousu Dousong Douyan Douqiao Doudu Doujia Douchi Doulei Doushu Doutian
-
-Douzun Douqiong Douxiu Dousha Dougeng Douzhen Dougong Douzhi Doumi Douyi
-
-Doulan Dougen Douyu Douhua Douchun Douji Doulang Dousun Douzheng Doumie
-
-Douhe Douxue Doupei Douxiang Douqie Douyou Douge Douguan Doujiao Doufeng
-
-Douting Dounai Douxia Doudai Douchan Douteng Doujie Douzhan Doumian Doukuan
-
-Dougai Doushan Douran Douzhe Doulu Douwang Douxuan Douzhong Douhao Douzu
-
-Dougang Douqiang Dourong Doushe 
+Douting Douxia Doudai Douteng Doujie Doushan Douzhe Douhao Dourong Doushe 
