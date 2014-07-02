@@ -1,52 +1,26 @@
-de
+de 得 德
 ---
 
-De Debi Derun Detao Deyue Delong Dewei Debai Deban Deshuai
+De Derun Delong Dewei Dexi Deling Dequn Desheng Dexian Denian Dehou Defu Delin
 
-Dexi Deli Denuo Denie Deling Dede Dequn Desheng Dexian Dekun
+Dechuan Dejing Depeng Denan Dexiao Deqin Demai Deyang Dechao Dewo Dechen Dedong 
 
-Deou Denian Delou Dece Dehou Defu Detai Dedan Degu Delin
+Deneng Dean Defang Delun Deya Dezhou Defan Deshuo Dewen Dexin Dehong Dele
 
-Dechuan Dejing Dekuang Deluo Depeng Denan Dexiao Deqin Dedun Dequ
+Dezeng Dejian Deying Deheng Deda Deshi Deming Deqi Dekang Desai Dezhuo Deyuan
 
-Demai Delv Deyang Dechao Dewo Denu Dechen Dedong Deer Deniu
+Dening Dezhai Deping Dejun Deren Dexu Deseng Deen Defen Derui Dechong
 
-Decan Deneng Dean Deke Defang Delun Dete Dedao Deme Deya
+Dekuo Deye Desi Deze Dehun Dehai Dexing Dechuang Debang Dezhao Dezhang Deguo Deqian
 
-Decao Dezhou Dejiu Deqiu Defan Deshuo Dewen Dexin Dehong Dele
+Deyao Deru Dehui Demiao Detang Dehang Deqing Demin Dekai Demu Detong Dejin
 
-Dezeng Dejian Deying Deheng Deken Deju Deda Depu Deshang Deshi
+Dexun Demeng Debin Deyong Desen Decheng Demou Deyun Dehan Dequan Dezi Deai Decai Desui
 
-Dewai Deming Depo Deqi Dekang Desai Dezhuo Degao Deao Deyuan
+Demei Deguang Deshen Deshun Dejiang Dehuan Desong Deyan Deqiao Dejia Dechi Delei Deshu Detian
 
-Dening Dezhai Dezha Deshuang Deping Dejuan Dejun Deren Dezhu Depan
+Dezun Deqiong Dexiu Desha Degeng Dezhen Degong Dezhi Deyi Delan Degen Deyu Dehua Desun 
 
-Dedi Dexu Dedou Deseng Deen Defen Deman Derui Derao Dechong
+Depei Dexiang Deqie Deyou Deguan Dejiao Defeng Deting Dexia Deteng Dejie Dezhan Dekuan
 
-Dekuo Defei Deye Desi Dehuai Dee Deyin Deze Dehun Dehai
-
-Dexing Dezhun Dechuang Dewa Debang Dezhao Dezhang Deguo Debo   Deqian
-
-Deshai Deyao Deru Dehui Demiao Decen Detang Depai Dehang Deqing
-
-Demin Dekai Deshao Dezong Demu Detong Dechu Decong Degou Dejin
-
-Deruo Denun Dexun Demeng Debin Dedui Deyong Desen Decheng Demou
-
-Deyun Deduan Dehan Dequan Dewu Dezi Deai Decai Desui Debing
-
-Dechang Demei Deguang Deshen Dena Deshun Decun Dejiang Dezhuai Dehuan
-
-Desu Desong Deyan Deqiao Dedu Dejia Dechi Delei Deshu Detian
-
-Dezun Deqiong Dexiu Desha Degeng Dezhen Degong Dezhi Demi Deyi
-
-Delan Degen Deyu Dehua Dechun Deji Delang Desun Dezheng Demie
-
-Dehe Dexue Depei Dexiang Deqie Deyou Dege Deguan Dejiao Defeng
-
-Deting Denai Dexia Dedai Dechan Deteng Dejie Dezhan Demian Dekuan
-
-Degai Deshan Deran Dezhe Delu Dewang Dexuan Dezhong Dehao Dezu
-
-Degang Deqiang Derong Deshe 
+Deshan Dezhe Delu Dexuan Dezhong Dehao Degang Deqiang Derong
