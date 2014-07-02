@@ -1,4 +1,4 @@
-di
+di 第 弟 帝 蒂 迪
 ---
 
 Di Dibi Dirun Ditao Diyue Dilong Diwei Dibai Diban Dishuai
