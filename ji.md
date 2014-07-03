@@ -1,17 +1,8 @@
-ji
+ji  及 即 级 集 计 基 吉 季 积 姬 冀 霁 嵇 羁 迹 辑 继 际 济 绩
 ---
 
-Ji Jibi Jirun Jitao Jiyue Jilong Jiwei Jibai Jiban Jishuai
-
-Jixi Jili Jinuo Jinie Jiling Jide Jiqun Jisheng Jixian Jikun
-
-Jiou Jinian Jilou Jice Jihou Jifu Jitai Jidan Jigu Jilin
-
-Jichuan Jijing Jikuang Jiluo Jipeng Jinan Jixiao Jiqin Jidun Jiqu
-
-Jimai Jilv Jiyang Jichao Jiwo Jinu Jichen Jidong Jier Jiniu
-
-Jican Jineng Jian Jike Jifang Jilun Jite Jidao Jime Jiya
+Ji Jilong Jiwei Jixi Jiling Jide Jisheng Jixian Jinian Jidan Jilin Jichuan Jipeng Jinan Jiqin Jiyang Jichao Jike Jifang 
+Jilun Jite Jidao Jime Jiya
 
 Jicao Jizhou Jijiu Jiqiu Jifan Jishuo Jiwen Jixin Jihong Jile
 
