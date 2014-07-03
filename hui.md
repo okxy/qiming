@@ -1,52 +1,16 @@
-hui
+hui  会 回 汇 辉 挥 绘 慧 惠 晖 徽 卉 荟 蕙 茴 珲 袆
 ---
 
-Hui Huibi Huirun Huitao Huiyue Huilong Huiwei Huibai Huiban Huishuai
+Hui Huirun Huitao Huiyue Huilong Huixi Huili Huiling Huiqun Huisheng Huixian Huikun
 
-Huixi Huili Huinuo Huinie Huiling Huide Huiqun Huisheng Huixian Huikun
+Huinian Huifu Huitai Huidan Huilin Huichuan Huijing Huipeng Huinan Huiqin Huiyang Huichao Huichen Huidong 
 
-Huiou Huinian Huilou Huice Huihou Huifu Huitai Huidan Huigu Huilin
+Huineng Huifang Huiya Huifan Huishuo Huiwen Huixin Huile Huizeng Huiying Huida Huiming Huiqi Huikang Huizhuo Huiyuan
 
-Huichuan Huijing Huikuang Huiluo Huipeng Huinan Huixiao Huiqin Huidun Huiqu
+Huining Huiping Huijun Huien Huifen Huize Huihai Huiguo Huiyao Huiru Huihang Huiqing Huimin Huixun Huimeng Huibin 
 
-Huimai Huilv Huiyang Huichao Huiwo Huinu Huichen Huidong Huier Huiniu
+Huiyong Huicheng Huiyun Huihan Huizi Huicai Huichang Huimei Huijiang Huihuan Huiyan Huijia Huishu Huitian
 
-Huican Huineng Huian Huike Huifang Huilun Huite Huidao Huime Huiya
+Huiqiong Huizhen Huizhi Huiyi Huilan Huiyu Huiji Huisun Huixue Huixiang Huijiao Huifeng
 
-Huicao Huizhou Huijiu Huiqiu Huifan Huishuo Huiwen Huixin Huihong Huile
-
-Huizeng Huijian Huiying Huiheng Huiken Huiju Huida Huipu Huishang Huishi
-
-Huiwai Huiming Huipo Huiqi Huikang Huisai Huizhuo Huigao Huiao Huiyuan
-
-Huining Huizhai Huizha Huishuang Huiping Huijuan Huijun Huiren Huizhu Huipan
-
-Huidi Huixu Huidou Huiseng Huien Huifen Huiman Huirui Huirao Huichong
-
-Huikuo Huifei Huiye Huisi Huihuai Huie Huiyin Huize Huihun Huihai
-
-Huixing Huizhun Huichuang Huiwa Huibang Huizhao Huizhang Huiguo Huibo   Huiqian
-
-Huishai Huiyao Huiru Huihui Huimiao Huicen Huitang Huipai Huihang Huiqing
-
-Huimin Huikai Huishao Huizong Huimu Huitong Huichu Huicong Huigou Huijin
-
-Huiruo Huinun Huixun Huimeng Huibin Huidui Huiyong Huisen Huicheng Huimou
-
-Huiyun Huiduan Huihan Huiquan Huiwu Huizi Huiai Huicai Huisui Huibing
-
-Huichang Huimei Huiguang Huishen Huina Huishun Huicun Huijiang Huizhuai Huihuan
-
-Huisu Huisong Huiyan Huiqiao Huidu Huijia Huichi Huilei Huishu Huitian
-
-Huizun Huiqiong Huixiu Huisha Huigeng Huizhen Huigong Huizhi Huimi Huiyi
-
-Huilan Huigen Huiyu Huihua Huichun Huiji Huilang Huisun Huizheng Huimie
-
-Huihe Huixue Huipei Huixiang Huiqie Huiyou Huige Huiguan Huijiao Huifeng
-
-Huiting Huinai Huixia Huidai Huichan Huiteng Huijie Huizhan Huimian Huikuan
-
-Huigai Huishan Huiran Huizhe Huilu Huiwang Huixuan Huizhong Huihao Huizu
-
-Huigang Huiqiang Huirong Huishe 
+Huiting Huichan Huiteng Huijie Huikuan Huishan Huizhe Huixuan Huizhong Huihao Huiqiang  
