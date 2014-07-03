@@ -1,7 +1,7 @@
-hun
+hun  珲 浑
 ---
 
-Hun Hunbi Hunrun Huntao Hunyue Hunlong Hunwei Hunbai Hunban Hunshuai
+Hun Huntao Hunyue Hunlong Hunwei Hunbai Hunban Hunshuai
 
 Hunxi Hunli Hunnuo Hunnie Hunling Hunde Hunqun Hunsheng Hunxian Hunkun
 
