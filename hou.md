@@ -1,29 +1,13 @@
-hou
+hou 侯 候 侯
 ---
 
-Hou Houbi Hourun Houtao Houyue Houlong Houwei Houbai Houban Houshuai
+Hou Hourun Houtao Houyue Houwei Houxi Houling Houde Houqun Housheng Houxian Houkun
 
-Houxi Houli Hounuo Hounie Houling Houde Houqun Housheng Houxian Houkun
+Hounian Houfu Houdan Houlin Houjing Houluo Houpeng Houxiao Houqin Houqu
 
-Houou Hounian Houlou Houce Houhou Houfu Houtai Houdan Hougu Houlin
+Houyang Houchao Houchen Houneng Houke Houfang Houlun Houzhou Houfan Houshuo Houwen Houxin Houhong
 
-Houchuan Houjing Houkuang Houluo Houpeng Hounan Houxiao Houqin Houdun Houqu
-
-Houmai Houlv Houyang Houchao Houwo Hounu Houchen Houdong Houer Houniu
-
-Houcan Houneng Houan Houke Houfang Houlun Houte Houdao Houme Houya
-
-Houcao Houzhou Houjiu Houqiu Houfan Houshuo Houwen Houxin Houhong Houle
-
-Houzeng Houjian Houying Houheng Houken Houju Houda Houpu Houshang Houshi
-
-Houwai Houming Houpo Houqi Houkang Housai Houzhuo Hougao Houao Houyuan
-
-Houning Houzhai Houzha Houshuang Houping Houjuan Houjun Houren Houzhu Houpan
-
-Houdi Houxu Houdou Houseng Houen Houfen Houman Hourui Hourao Houchong
-
-Houkuo Houfei Houye Housi Houhuai Houe Houyin Houze Houhun Houhai
+Houying Houheng Houming Houqi Houkang Houzhuo Houning Houping Houjun Houren Houen Houfen Hourui Houkuo Houfei Houye Housi Houhuai Houe Houyin Houze Houhun Houhai
 
 Houxing Houzhun Houchuang Houwa Houbang Houzhao Houzhang Houguo Houbo   Houqian
 
