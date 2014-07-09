@@ -1,52 +1,16 @@
-ge
+ge  哥 歌 格 葛 阁 革 鸽 舸 戈
 ---
 
-Ge Gebi Gerun Getao Geyue Gelong Gewei Gebai Geban Geshuai
+Ge Gerun Gelong Gewei Gexi Geling Gede Gekun Geou Genian Gehou Gefu Getai Gedan Gelin Gepeng Geqin 
 
-Gexi Geli Genuo Genie Geling Gede Gequn Gesheng Gexian Gekun
+Geyang Gechao Gechen Gedong Gean Gefang Geya Geqiu Gefan Geshuo Gewen Gexin Gehong Gele Gezeng Gejian Geying 
 
-Geou Genian Gelou Gece Gehou Gefu Getai Gedan Gegu Gelin
+Geheng Geju Geda Geshang Geming Geqi Gekang Gezhuo Geyuan Gening Geping Gejun Geren Gexu Geen Gefen Gerui 
 
-Gechuan Gejing Gekuang Geluo Gepeng Genan Gexiao Geqin Gedun Gequ
+Gefei Gesi Gehuai Geze Gehai Gexing Gechuang Gebang Gezhao Geguo Geqian Geru Gehui Getang Geqing
 
-Gemai Gelv Geyang Gechao Gewo Genu Gechen Gedong Geer Geniu
+Gemin Gekai Getong Gejin Geruo Gexun Gemeng Gebin Geyong Gesen Gecheng Geyun Gehan Gecai Gesui Gebing
 
-Gecan Geneng Gean Geke Gefang Gelun Gete Gedao Geme Geya
+Gemei Geguang Geshen Gena Gejiang Gesong Geyan Gejia Geshu Getian Gexiu Gezhen Geyi Gelan Geyu Gehua 
 
-Gecao Gezhou Gejiu Geqiu Gefan Geshuo Gewen Gexin Gehong Gele
-
-Gezeng Gejian Geying Geheng Geken Geju Geda Gepu Geshang Geshi
-
-Gewai Geming Gepo Geqi Gekang Gesai Gezhuo Gegao Geao Geyuan
-
-Gening Gezhai Gezha Geshuang Geping Gejuan Gejun Geren Gezhu Gepan
-
-Gedi Gexu Gedou Geseng Geen Gefen Geman Gerui Gerao Gechong
-
-Gekuo Gefei Geye Gesi Gehuai Gee Geyin Geze Gehun Gehai
-
-Gexing Gezhun Gechuang Gewa Gebang Gezhao Gezhang Geguo Gebo   Geqian
-
-Geshai Geyao Geru Gehui Gemiao Gecen Getang Gepai Gehang Geqing
-
-Gemin Gekai Geshao Gezong Gemu Getong Gechu Gecong Gegou Gejin
-
-Geruo Genun Gexun Gemeng Gebin Gedui Geyong Gesen Gecheng Gemou
-
-Geyun Geduan Gehan Gequan Gewu Gezi Geai Gecai Gesui Gebing
-
-Gechang Gemei Geguang Geshen Gena Geshun Gecun Gejiang Gezhuai Gehuan
-
-Gesu Gesong Geyan Geqiao Gedu Gejia Gechi Gelei Geshu Getian
-
-Gezun Geqiong Gexiu Gesha Gegeng Gezhen Gegong Gezhi Gemi Geyi
-
-Gelan Gegen Geyu Gehua Gechun Geji Gelang Gesun Gezheng Gemie
-
-Gehe Gexue Gepei Gexiang Geqie Geyou Gege Geguan Gejiao Gefeng
-
-Geting Genai Gexia Gedai Gechan Geteng Gejie Gezhan Gemian Gekuan
-
-Gegai Geshan Geran Gezhe Gelu Gewang Gexuan Gezhong Gehao Gezu
-
-Gegang Geqiang Gerong Geshe 
+Gexue Gexiang Geyou Gege Gejiao Gefeng Geting Gexia Gejie Gekuan Geshan Gelu Gexuan Gezhong Geqiang 
