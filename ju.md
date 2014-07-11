@@ -1,17 +1,11 @@
-ju
+ju  句 局 举 居 菊 俱 炬
 ---
 
-Ju Jubi Jurun Jutao Juyue Julong Juwei Jubai Juban Jushuai
+Ju Jubi Jurun Jutao Juyue Julong Juwei Jubai Juban Jushuai Juxi Juli Junuo Junie Juling Jude Juqun Jusheng Juxian Jukun
 
-Juxi Juli Junuo Junie Juling Jude Juqun Jusheng Juxian Jukun
+Juou Junian Julou Juce Juhou Jufu Jutai Judan Jugu Julin Juchuan Jujing Jukuang Juluo Jupeng Junan Juxiao Juqin Judun Juqu
 
-Juou Junian Julou Juce Juhou Jufu Jutai Judan Jugu Julin
-
-Juchuan Jujing Jukuang Juluo Jupeng Junan Juxiao Juqin Judun Juqu
-
-Jumai Julv Juyang Juchao Juwo Junu Juchen Judong Juer Juniu
-
-Jucan Juneng Juan Juke Jufang Julun Jute Judao Jume Juya
+Jumai Julv Juyang Jucan Juneng Juan Juke Jufang Julun Jute Judao Jume Juya 
 
 Jucao Juzhou Jujiu Juqiu Jufan Jushuo Juwen Juxin Juhong Jule
 
