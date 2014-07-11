@@ -1,52 +1,26 @@
-kun
+kun  坤 昆 琨 鲲
 ---
 
-Kun Kunbi Kunrun Kuntao Kunyue Kunlong Kunwei Kunbai Kunban Kunshuai
+Kun Kunrun Kunyue Kunlong Kunwei Kunxi Kunli Kunling Kunde Kunsheng Kunxian Kunkun
 
-Kunxi Kunli Kunnuo Kunnie Kunling Kunde Kunqun Kunsheng Kunxian Kunkun
+Kunou Kunnian Kunlou Kunce Kunhou Kunfu Kuntai Kundan Kungu Kunlin Kunchuan Kunjing Kunpeng Kunnan Kunxiao Kunqin 
 
-Kunou Kunnian Kunlou Kunce Kunhou Kunfu Kuntai Kundan Kungu Kunlin
+Kunmai Kunlv Kunyang Kunchao Kunwo Kunnu Kunchen Kundong Kuner Kunniu Kunan Kunke Kunfang Kunlun Kundao Kunya
 
-Kunchuan Kunjing Kunkuang Kunluo Kunpeng Kunnan Kunxiao Kunqin Kundun Kunqu
+Kuncao Kunzhou Kunjiu Kunqiu Kunfan Kunshuo Kunwen Kunxin Kunhong Kunle Kunjian Kunying Kunken Kunju Kunda 
 
-Kunmai Kunlv Kunyang Kunchao Kunwo Kunnu Kunchen Kundong Kuner Kunniu
+Kunming Kunqi Kunkang Kunsai Kunzhuo Kunning Kunzhai Kunzha Kunshuang Kunping Kunjuan  Kunzhu Kunpan
 
-Kuncan Kunneng Kunan Kunke Kunfang Kunlun Kunte Kundao Kunme Kunya
+Kundi Kunxu Kundou Kunseng Kunen Kunfen Kunman Kunrui Kunrao Kunchong Kunsi Kunyin Kunze Kunhun Kunhai
 
-Kuncao Kunzhou Kunjiu Kunqiu Kunfan Kunshuo Kunwen Kunxin Kunhong Kunle
+Kunxing Kunzhun Kunchuang Kunwa Kunbang Kunzhao Kunzhang Kunguo Kunyao Kunhui Kunmiao Kuntang Kunpai Kunhang Kunqing
 
-Kunzeng Kunjian Kunying Kunheng Kunken Kunju Kunda Kunpu Kunshang Kunshi
+Kunmin Kunkai Kungou Kunjin Kunruo Kunxun Kunmeng Kunbin Kundui Kunyong Kunsen Kuncheng Kunmou
 
-Kunwai Kunming Kunpo Kunqi Kunkang Kunsai Kunzhuo Kungao Kunao Kunyuan
+Kunyun Kunduan Kunhan Kunquan Kunwu Kunzi Kunai Kuncai Kunsui Kunbing Kunchang Kunmei Kunshen Kunna
 
-Kunning Kunzhai Kunzha Kunshuang Kunping Kunjuan Kunjun Kunren Kunzhu Kunpan
+Kunsu Kunsong Kunyan Kundu Kunjia Kunlei Kunshu Kuntian Kunqiong Kunxiu Kunsha Kunzhen Kunmi Kunyi
 
-Kundi Kunxu Kundou Kunseng Kunen Kunfen Kunman Kunrui Kunrao Kunchong
+Kunlan Kungen Kunyu Kunhua Kunchun Kunji Kunlang Kunsun Kunxue Kunxiang Kunqie Kunyou Kunge Kunguan Kunjiao Kunfeng
 
-Kunkuo Kunfei Kunye Kunsi Kunhuai Kune Kunyin Kunze Kunhun Kunhai
-
-Kunxing Kunzhun Kunchuang Kunwa Kunbang Kunzhao Kunzhang Kunguo Kunbo   Kunqian
-
-Kunshai Kunyao Kunru Kunhui Kunmiao Kuncen Kuntang Kunpai Kunhang Kunqing
-
-Kunmin Kunkai Kunshao Kunzong Kunmu Kuntong Kunchu Kuncong Kungou Kunjin
-
-Kunruo Kunnun Kunxun Kunmeng Kunbin Kundui Kunyong Kunsen Kuncheng Kunmou
-
-Kunyun Kunduan Kunhan Kunquan Kunwu Kunzi Kunai Kuncai Kunsui Kunbing
-
-Kunchang Kunmei Kunguang Kunshen Kunna Kunshun Kuncun Kunjiang Kunzhuai Kunhuan
-
-Kunsu Kunsong Kunyan Kunqiao Kundu Kunjia Kunchi Kunlei Kunshu Kuntian
-
-Kunzun Kunqiong Kunxiu Kunsha Kungeng Kunzhen Kungong Kunzhi Kunmi Kunyi
-
-Kunlan Kungen Kunyu Kunhua Kunchun Kunji Kunlang Kunsun Kunzheng Kunmie
-
-Kunhe Kunxue Kunpei Kunxiang Kunqie Kunyou Kunge Kunguan Kunjiao Kunfeng
-
-Kunting Kunnai Kunxia Kundai Kunchan Kunteng Kunjie Kunzhan Kunmian Kunkuan
-
-Kungai Kunshan Kunran Kunzhe Kunlu Kunwang Kunxuan Kunzhong Kunhao Kunzu
-
-Kungang Kunqiang Kunrong Kunshe 
+Kunting Kunnai Kunxia Kundai Kunchan Kunteng Kunjie Kunshan Kunzhe Kunhao Kunzu Kunqiang Kunrong Kunshe 
