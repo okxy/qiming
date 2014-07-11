@@ -1,52 +1,23 @@
-ken
+ken  肯
 ---
 
-Ken Kenbi Kenrun Kentao Kenyue Kenlong Kenwei Kenbai Kenban Kenshuai
+Ken 
+Kenxi Kenling Kende Kenqun Kensheng Kenxian Kenkun Kenou Kennian  Kenchuan Kenjing Kenkuang Kenluo Kenpeng Kennan Kenxiao Kenqin 
 
-Kenxi Kenli Kennuo Kennie Kenling Kende Kenqun Kensheng Kenxian Kenkun
+Kencan Kenneng Kenan Kenke Kenfang Kenlun Kente Kendao Kenme Kenya Kenfan Kenshuo Kenwen Kenxin Kenhong Kenle
 
-Kenou Kennian Kenlou Kence Kenhou Kenfu Kentai Kendan Kengu Kenlin
+Kenwai Kenming Kenpo Kenqi Kenkang Kenning Kenzhai Kenzha Kenshuang Kenping Kenjuan Kenjun
 
-Kenchuan Kenjing Kenkuang Kenluo Kenpeng Kennan Kenxiao Kenqin Kendun Kenqu
+Kendi Kenxu Kendou Kenseng Kenen Kenkuo Kenfei Kenye Kensi Kenhuai Kene Kenyin Kenze Kenhun Kenhai
 
-Kenmai Kenlv Kenyang Kenchao Kenwo Kennu Kenchen Kendong Kener Kenniu
+Kenxing Kenzhun Kenchuang Kenwa Kenbang Kenshai Kenyao Kenru Kenhui Kenmiao Kencen Kentang Kenpai Kenhang Kenqing
 
-Kencan Kenneng Kenan Kenke Kenfang Kenlun Kente Kendao Kenme Kenya
+Kenmin Kenkai Kenshao Kenzong Kenruo Kennun Kenxun Kenmeng Kenbin Kendui Kenyong Kensen Kencheng Kenmou
 
-Kencao Kenzhou Kenjiu Kenqiu Kenfan Kenshuo Kenwen Kenxin Kenhong Kenle
+Kenyun Kenhan Kencai Kensui Kenbing Kenchang Kenmei Kenguang Kenshen Kenna Kenshun Kencun Kenjiang Kenzhuai Kenhuan
 
-Kenzeng Kenjian Kenying Kenheng Kenken Kenju Kenda Kenpu Kenshang Kenshi
+Kensu Kensong Kenyan Kenqiao Kendu Kenjia Kenchi Kenlei Kenshu Kenxiu Kenzhen Kengong Kenzhi Kenmi Kenyi
 
-Kenwai Kenming Kenpo Kenqi Kenkang Kensai Kenzhuo Kengao Kenao Kenyuan
+Kenlan Kengen Kenyu Kenhua Kenchun Kenji Kenlang Kensun Kenzheng Kenmie Kenhe Kenxue Kenpei Kenxiang  Kenjiao Kenfeng
 
-Kenning Kenzhai Kenzha Kenshuang Kenping Kenjuan Kenjun Kenren Kenzhu Kenpan
-
-Kendi Kenxu Kendou Kenseng Kenen Kenfen Kenman Kenrui Kenrao Kenchong
-
-Kenkuo Kenfei Kenye Kensi Kenhuai Kene Kenyin Kenze Kenhun Kenhai
-
-Kenxing Kenzhun Kenchuang Kenwa Kenbang Kenzhao Kenzhang Kenguo Kenbo   Kenqian
-
-Kenshai Kenyao Kenru Kenhui Kenmiao Kencen Kentang Kenpai Kenhang Kenqing
-
-Kenmin Kenkai Kenshao Kenzong Kenmu Kentong Kenchu Kencong Kengou Kenjin
-
-Kenruo Kennun Kenxun Kenmeng Kenbin Kendui Kenyong Kensen Kencheng Kenmou
-
-Kenyun Kenduan Kenhan Kenquan Kenwu Kenzi Kenai Kencai Kensui Kenbing
-
-Kenchang Kenmei Kenguang Kenshen Kenna Kenshun Kencun Kenjiang Kenzhuai Kenhuan
-
-Kensu Kensong Kenyan Kenqiao Kendu Kenjia Kenchi Kenlei Kenshu Kentian
-
-Kenzun Kenqiong Kenxiu Kensha Kengeng Kenzhen Kengong Kenzhi Kenmi Kenyi
-
-Kenlan Kengen Kenyu Kenhua Kenchun Kenji Kenlang Kensun Kenzheng Kenmie
-
-Kenhe Kenxue Kenpei Kenxiang Kenqie Kenyou Kenge Kenguan Kenjiao Kenfeng
-
-Kenting Kennai Kenxia Kendai Kenchan Kenteng Kenjie Kenzhan Kenmian Kenkuan
-
-Kengai Kenshan Kenran Kenzhe Kenlu Kenwang Kenxuan Kenzhong Kenhao Kenzu
-
-Kengang Kenqiang Kenrong Kenshe 
+Kenting Kengai Kenshan Kenran Kenzhe Kenlu Kenwang Kenxuan Kenzhong Kenhao Kenzu Kengang Kenqiang Kenrong Kenshe 
