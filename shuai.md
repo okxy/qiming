@@ -1,4 +1,4 @@
-shuai
+shuai  帅 
 ---
 
 Shuai Shuaibi Shuairun Shuaitao Shuaiyue Shuailong Shuaiwei Shuaibai Shuaiban Shuaishuai

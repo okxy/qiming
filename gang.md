@@ -1,52 +1,18 @@
-gang
+gang  刚 纲 钢 罡 冈
 ---
 
-Gang Gangbi Gangrun Gangtao Gangyue Ganglong Gangwei Gangbai Gangban Gangshuai
+Gang Gangrun Gangyue Gangwei Gangling Gangde Gangkun Gangfu Gangtai Ganglin Gangchuan Gangjing Gangpeng Gangqin 
 
-Gangxi Gangli Gangnuo Gangnie Gangling Gangde Gangqun Gangsheng Gangxian Gangkun
+Gangyang Gangchao Gangchen Gangdong Gangneng Ganglun Gangte Gangdao Gangya Gangfan Gangshuo Gangwen 
 
-Gangou Gangnian Ganglou Gangce Ganghou Gangfu Gangtai Gangdan Ganggu Ganglin
+Gangheng Gangda Gangshi Gangming Gangqi Gangning  Gangren Gangdi Gangxu Gangfen Gangrui 
 
-Gangchuan Gangjing Gangkuang Gangluo Gangpeng Gangnan Gangxiao Gangqin Gangdun Gangqu
+Gangye Ganghuai Gangyin Gangze Ganghai Gangxing Gangguo Gangqian Ganghui Gangqing
 
-Gangmai Ganglv Gangyang Gangchao Gangwo Gangnu Gangchen Gangdong Ganger Gangniu
+Gangmin Gangkai Gangtong Gangjin Gangruo Gangxun Gangbin Gangyong Gangcheng Gangmou
 
-Gangcan Gangneng Gangan Gangke Gangfang Ganglun Gangte Gangdao Gangme Gangya
+Gangyun Ganghan Gangcai Gangbing Gangmei Gangshen Gangshun Gangsu Gangyan Gangqiao Gangjia Ganglei Gangshu 
 
-Gangcao Gangzhou Gangjiu Gangqiu Gangfan Gangshuo Gangwen Gangxin Ganghong Gangle
+Gangzun Gangxiu Gangyi Ganglan Gangyu Ganghua Gangxue Gangxiang Gangyou Gangjiao Gangfeng
 
-Gangzeng Gangjian Gangying Gangheng Gangken Gangju Gangda Gangpu Gangshang Gangshi
-
-Gangwai Gangming Gangpo Gangqi Gangkang Gangsai Gangzhuo Ganggao Gangao Gangyuan
-
-Gangning Gangzhai Gangzha Gangshuang Gangping Gangjuan Gangjun Gangren Gangzhu Gangpan
-
-Gangdi Gangxu Gangdou Gangseng Gangen Gangfen Gangman Gangrui Gangrao Gangchong
-
-Gangkuo Gangfei Gangye Gangsi Ganghuai Gange Gangyin Gangze Ganghun Ganghai
-
-Gangxing Gangzhun Gangchuang Gangwa Gangbang Gangzhao Gangzhang Gangguo Gangbo   Gangqian
-
-Gangshai Gangyao Gangru Ganghui Gangmiao Gangcen Gangtang Gangpai Ganghang Gangqing
-
-Gangmin Gangkai Gangshao Gangzong Gangmu Gangtong Gangchu Gangcong Ganggou Gangjin
-
-Gangruo Gangnun Gangxun Gangmeng Gangbin Gangdui Gangyong Gangsen Gangcheng Gangmou
-
-Gangyun Gangduan Ganghan Gangquan Gangwu Gangzi Gangai Gangcai Gangsui Gangbing
-
-Gangchang Gangmei Gangguang Gangshen Gangna Gangshun Gangcun Gangjiang Gangzhuai Ganghuan
-
-Gangsu Gangsong Gangyan Gangqiao Gangdu Gangjia Gangchi Ganglei Gangshu Gangtian
-
-Gangzun Gangqiong Gangxiu Gangsha Ganggeng Gangzhen Ganggong Gangzhi Gangmi Gangyi
-
-Ganglan Ganggen Gangyu Ganghua Gangchun Gangji Ganglang Gangsun Gangzheng Gangmie
-
-Ganghe Gangxue Gangpei Gangxiang Gangqie Gangyou Gangge Gangguan Gangjiao Gangfeng
-
-Gangting Gangnai Gangxia Gangdai Gangchan Gangteng Gangjie Gangzhan Gangmian Gangkuan
-
-Ganggai Gangshan Gangran Gangzhe Ganglu Gangwang Gangxuan Gangzhong Ganghao Gangzu
-
-Ganggang Gangqiang Gangrong Gangshe 
+Gangting Gangxia GangjieGangshan Gangzhe Ganglu Gangxuan Gangzhong  
