@@ -1,19 +1,7 @@
-xing
+xing  行 星 幸 兴 邢 杏 形 型 省
 ---
 
-Xing Xingbi Xingrun Xingtao Xingyue Xinglong Xingwei Xingbai Xingban Xingshuai
-
-Xingxi Xingli Xingnuo Xingnie Xingling Xingde Xingqun Xingsheng Xingxian Xingkun
-
-Xingou Xingnian Xinglou Xingce Xinghou Xingfu Xingtai Xingdan Xinggu Xinglin
-
-Xingchuan Xingjing Xingkuang Xingluo Xingpeng Xingnan Xingxiao Xingqin Xingdun Xingqu
-
-Xingmai Xinglv Xingyang Xingchao Xingwo Xingnu Xingchen Xingdong Xinger Xingniu
-
-Xingcan Xingneng Xingan Xingke Xingfang Xinglun Xingte Xingdao Xingme Xingya
-
-Xingcao Xingzhou Xingjiu Xingqiu Xingfan Xingshuo Xingwen Xingxin Xinghong Xingle
+Xing Xingyue Xinglong Xingnian Xingyang Xingke Xingfang Xingzhou Xingfan Xingshuo Xingwen Xingxin Xinghong Xingle
 
 Xingzeng Xingjian Xingying Xingheng Xingken Xingju Xingda Xingpu Xingshang Xingshi
 
