@@ -1,52 +1,18 @@
-li
+li  里 力 礼 李 离 理 利 立 丽 粒 例 黎 莉 梨 历 励 厘 俐 俪 笠 砺
 ---
 
-Li Libi Lirun Litao Liyue Lilong Liwei Libai Liban Lishuai
+Li Liyue Lilong Liwei Lixi Lili Linuo Liling Lide Liqun Lixian Likun Liou Linian Lichuan Lijing Lipeng Linan Lixiao 
 
-Lixi Lili Linuo Linie Liling Lide Liqun Lisheng Lixian Likun
+Liqin Liyang Lichao Lichen Lidong Like Lifang Lilun Lite Liya Lijiu Lifan Lishuo Liwen Lixin Lihong Lizeng Liying 
 
-Liou Linian Lilou Lice Lihou Lifu Litai Lidan Ligu Lilin
+Liming Liqi Likang Lizhuo Ligao Liao Liyuan Lining Lizhai Lizha Lishuang Liping Lijuan Lijun Liren Lizhu Lipan
 
-Lichuan Lijing Likuang Liluo Lipeng Linan Lixiao Liqin Lidun Liqu
+Lidi Lixu Lidou Liseng Lien Lifen Liman Lirui Lirao Liye Lisi Lihuai Lie Liyin Lize Lihun Lihai
 
-Limai Lilv Liyang Lichao Liwo Linu Lichen Lidong Lier Liniu
+Lixing Lizhun Lichuang Liwa Libang Lizhao Lizhang Liguo Libo  Liqian Lihui Limiao Licen Litang Lipai Lihang Liqing
 
-Lican Lineng Lian Like Lifang Lilun Lite Lidao Lime Liya
+Limin Lishao Lizong Limu Litong Lichu Licong Ligou Lijin Liruo Linun Lixun Limeng Libin Liyong Lisen Licheng 
 
-Licao Lizhou Lijiu Liqiu Lifan Lishuo Liwen Lixin Lihong Lile
+Liyun Liduan Lihan Liquan Licai Limei Lishen Lina Lisu Liyan Liqiao Lijia Litian Lixiu Lizhen Lizhi Liyi Lilan Liyu 
 
-Lizeng Lijian Liying Liheng Liken Liju Lida Lipu Lishang Lishi
-
-Liwai Liming Lipo Liqi Likang Lisai Lizhuo Ligao Liao Liyuan
-
-Lining Lizhai Lizha Lishuang Liping Lijuan Lijun Liren Lizhu Lipan
-
-Lidi Lixu Lidou Liseng Lien Lifen Liman Lirui Lirao Lichong
-
-Likuo Lifei Liye Lisi Lihuai Lie Liyin Lize Lihun Lihai
-
-Lixing Lizhun Lichuang Liwa Libang Lizhao Lizhang Liguo Libo   Liqian
-
-Lishai Liyao Liru Lihui Limiao Licen Litang Lipai Lihang Liqing
-
-Limin Likai Lishao Lizong Limu Litong Lichu Licong Ligou Lijin
-
-Liruo Linun Lixun Limeng Libin Lidui Liyong Lisen Licheng Limou
-
-Liyun Liduan Lihan Liquan Liwu Lizi Liai Licai Lisui Libing
-
-Lichang Limei Liguang Lishen Lina Lishun Licun Lijiang Lizhuai Lihuan
-
-Lisu Lisong Liyan Liqiao Lidu Lijia Lichi Lilei Lishu Litian
-
-Lizun Liqiong Lixiu Lisha Ligeng Lizhen Ligong Lizhi Limi Liyi
-
-Lilan Ligen Liyu Lihua Lichun Liji Lilang Lisun Lizheng Limie
-
-Lihe Lixue Lipei Lixiang Liqie Liyou Lige Liguan Lijiao Lifeng
-
-Liting Linai Lixia Lidai Lichan Liteng Lijie Lizhan Limian Likuan
-
-Ligai Lishan Liran Lizhe Lilu Liwang Lixuan Lizhong Lihao Lizu
-
-Ligang Liqiang Lirong Lishe 
+Lihua Lichun Lixue Lixiang Lijiao Lifeng Liting Lijie Lishan Lizhe Liwang Lizhong Lihao Liqiang Lirong
