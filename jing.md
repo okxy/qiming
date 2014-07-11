@@ -5,23 +5,23 @@ Jing Jingbi Jingrun Jingtao Jingyue Jinglong Jingwei Jingbai Jingban Jingshuai
 
 Jingxi Jingli Jingnuo Jingnie Jingling Jingde Jingqun Jingsheng Jingxian Jingkun
 
-Jingou Jingnian Jinglou Jingce Jinghou Jingfu Jingtai Jingdan Jinggu Jinglin
+Jingou Jingnian 
 
-Jingchuan Jingjing Jingkuang Jingluo Jingpeng Jingnan Jingxiao Jingqin Jingdun Jingqu
+Jingchuan Jingjing Jingkuang Jingluo Jingpeng 
 
 Jingmai Jinglv Jingyang Jingchao Jingwo Jingnu Jingchen Jingdong Jinger Jingniu
 
-Jingcan Jingneng Jingan Jingke Jingfang Jinglun Jingte Jingdao Jingme Jingya
+Jingcan Jingneng Jingan Jingke Jingfang Jinglun
 
 Jingcao Jingzhou Jingjiu Jingqiu Jingfan Jingshuo Jingwen Jingxin Jinghong Jingle
 
 Jingzeng Jingjian Jingying Jingheng Jingken Jingju Jingda Jingpu Jingshang Jingshi
 
-Jingwai Jingming Jingpo Jingqi Jingkang Jingsai Jingzhuo Jinggao Jingao Jingyuan
+Jingwai Jingming Jingpo Jingqi Jingkang Jingsai Jingzhuo 
 
-Jingning Jingzhai Jingzha Jingshuang Jingping Jingjuan Jingjun Jingren Jingzhu Jingpan
+Jingning Jingzhai Jingzha Jingshuang Jingping Jingjuan Jingjun 
 
-Jingdi Jingxu Jingdou Jingseng Jingen Jingfen Jingman Jingrui Jingrao Jingchong
+Jingdi Jingxu Jingdou Jingseng Jingen Jingfen Jingman Jingrui 
 
 Jingkuo Jingfei Jingye Jingsi Jinghuai Jinge Jingyin Jingze Jinghun Jinghai
 
