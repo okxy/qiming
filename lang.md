@@ -1,52 +1,14 @@
-lang
+lang  郎 朗 琅
 ---
 
-Lang Langbi Langrun Langtao Langyue Langlong Langwei Langbai Langban Langshuai
+Lang Langrun Langyue Langxi Langde Langsheng Langxian Langnian Langlin Langpeng Langchen Langdong Langneng Langke 
 
-Langxi Langli Langnuo Langnie Langling Langde Langqun Langsheng Langxian Langkun
+Langfang Langlun Langfan Langwen Langxin Langying Langda  Langming Langqi Langzhuo Langning Langping Langjuan Langjun 
 
-Langou Langnian Langlou Langce Langhou Langfu Langtai Langdan Langgu Langlin
+Langren Langxu Langen Langfen Langrui Langkuo Langhuai Langze Langxing Langguo Langru Langhui Langqing Langkai 
 
-Langchuan Langjing Langkuang Langluo Langpeng Langnan Langxiao Langqin Langdun Langqu
+Langruo Langbin Langdui Langyong Langsen Langcheng Langyun Langcai Langbing Langmei Langsong Langyan Langjia Langshu 
 
-Langmai Langlv Langyang Langchao Langwo Langnu Langchen Langdong Langer Langniu
+Langtian Langzun Langqiong Langxiu Langyi Langlan Langyu Langhe Langxue Langjiao Langfeng Langting Langjie 
 
-Langcan Langneng Langan Langke Langfang Langlun Langte Langdao Langme Langya
-
-Langcao Langzhou Langjiu Langqiu Langfan Langshuo Langwen Langxin Langhong Langle
-
-Langzeng Langjian Langying Langheng Langken Langju Langda Langpu Langshang Langshi
-
-Langwai Langming Langpo Langqi Langkang Langsai Langzhuo Langgao Langao Langyuan
-
-Langning Langzhai Langzha Langshuang Langping Langjuan Langjun Langren Langzhu Langpan
-
-Langdi Langxu Langdou Langseng Langen Langfen Langman Langrui Langrao Langchong
-
-Langkuo Langfei Langye Langsi Langhuai Lange Langyin Langze Langhun Langhai
-
-Langxing Langzhun Langchuang Langwa Langbang Langzhao Langzhang Langguo Langbo   Langqian
-
-Langshai Langyao Langru Langhui Langmiao Langcen Langtang Langpai Langhang Langqing
-
-Langmin Langkai Langshao Langzong Langmu Langtong Langchu Langcong Langgou Langjin
-
-Langruo Langnun Langxun Langmeng Langbin Langdui Langyong Langsen Langcheng Langmou
-
-Langyun Langduan Langhan Langquan Langwu Langzi Langai Langcai Langsui Langbing
-
-Langchang Langmei Langguang Langshen Langna Langshun Langcun Langjiang Langzhuai Langhuan
-
-Langsu Langsong Langyan Langqiao Langdu Langjia Langchi Langlei Langshu Langtian
-
-Langzun Langqiong Langxiu Langsha Langgeng Langzhen Langgong Langzhi Langmi Langyi
-
-Langlan Langgen Langyu Langhua Langchun Langji Langlang Langsun Langzheng Langmie
-
-Langhe Langxue Langpei Langxiang Langqie Langyou Langge Langguan Langjiao Langfeng
-
-Langting Langnai Langxia Langdai Langchan Langteng Langjie Langzhan Langmian Langkuan
-
-Langgai Langshan Langran Langzhe Langlu Langwang Langxuan Langzhong Langhao Langzu
-
-Langgang Langqiang Langrong Langshe 
+Langshan Langran Langzhe Langhao
