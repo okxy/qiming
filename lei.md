@@ -5,24 +5,10 @@ Lei Leiyue Leilong Leiwei Leixi Leinuo Leisheng Leinian Leifu Leitai Leidan Leij
 
 Leiyang Leichen Leineng Leike Leifang Leiya Leijiu Leifan Leishuo Leiwen Leixin Leihong Leile Leiying Leiheng Leida 
 
-Leiming Leiqi Leikang Leizhuo Leining Leiping Leijuan Leijun Leiren Leizhu Leipan
+Leiming Leiqi Leikang Leizhuo Leining Leiping Leijuan Leijun Leiren Leizhu Leipan  Leien Leifen Leiman Leirui
 
- Leien Leifen Leiman Leirui   Leihui Leihang Leiqing
+Leihui Leihang Leiqing Leimin Leikai Leitong Leichu Leiruo  Leixun  Leibin Leiyong Leisen Leicheng Leimou
 
-Leimin Leikai Leitong Leichu  
+Leiyun Leicai Leibing Leichang Leimei   Leina Leishun Leijiang  Leiyan Leijia Leichi  Leishu Leitian Leiqiong Leixiu
 
-Leiruo  Leixun  Leibin Leiyong Leisen Leicheng Leimou
-
-Leiyun   Leicai  Leibing
-
-Leichang Leimei   Leina Leishun Leijiang  
-
- Leiyan   Leijia Leichi  Leishu Leitian
-
- Leiqiong Leixiu Leisha  Leizhen  Leizhi  Leiyi
-
-Leilan  Leiyu Leihua   Leixiang     Leijiao Leifeng
-
-Leiting  Leixia    Leijie   Leishan  Leizhe     Leihao 
-
- Leiqiang 
+Leizhen Leiyi Leiyu Leihua Leixiang Leijiao Leifeng Leiting  Leixia  Leijie   Leishan Leizhe Leihao Leiqiang 
