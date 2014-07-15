@@ -1,4 +1,4 @@
-shun
+shun  顺 舜 
 ---
 
 Shun Shunbi Shunrun Shuntao Shunyue Shunlong Shunwei Shunbai Shunban Shunshuai
