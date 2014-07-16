@@ -1,52 +1,20 @@
-shao
+shao  少 稍 绍 韶 芍 邵
 ---
 
-Shao Shaobi Shaorun Shaotao Shaoyue Shaolong Shaowei Shaobai Shaoban Shaoshuai
+Shao Shaorun Shaoyue Shaolong Shaowei Shaoxi Shaonuo Shaoling Shaokun Shaofu Shaopeng 
 
-Shaoxi Shaoli Shaonuo Shaonie Shaoling Shaode Shaoqun Shaosheng Shaoxian Shaokun
+Shaoyang Shaochao Shaochen Shaoan Shaoke Shaofang Shaolun Shaoya Shaofan Shaoshuo 
 
-Shaoou Shaonian Shaolou Shaoce Shaohou Shaofu Shaotai Shaodan Shaogu Shaolin
+Shaowen Shaoxin Shaohong Shaoying Shaoheng Shaoda Shaoming Shaoqi Shaokang Shaozhuo 
 
-Shaochuan Shaojing Shaokuang Shaoluo Shaopeng Shaonan Shaoxiao Shaoqin Shaodun Shaoqu
+Shaoyuan Shaoning Shaoping Shaojuan Shaoren Shaodi Shaoxu Shaoen Shaofen Shaorui
 
-Shaomai Shaolv Shaoyang Shaochao Shaowo Shaonu Shaochen Shaodong Shaoer Shaoniu
+Shaohuai Shaoze Shaoxing Shaobang Shaoguo Shaoru Shaohui Shaotang Shaoqing Shaomin 
 
-Shaocan Shaoneng Shaoan Shaoke Shaofang Shaolun Shaote Shaodao Shaome Shaoya
+Shaokai Shaozong Shaotong Shaoruo Shaoxun Shaobin Shaoyong Shaosen Shaocheng Shaoyun 
 
-Shaocao Shaozhou Shaojiu Shaoqiu Shaofan Shaoshuo Shaowen Shaoxin Shaohong Shaole
+Shaohan Shaoquan Shaocai Shaobing Shaomei Shaona Shaojiang Shaoyan Shaojia Shaochi 
 
-Shaozeng Shaojian Shaoying Shaoheng Shaoken Shaoju Shaoda Shaopu Shaoshang Shaoshi
+Shaolei Shaoshu Shaozun Shaoxiu Shaosha Shaomi Shaoyi Shaolan Shaogen Shaoyu Shaohua
 
-Shaowai Shaoming Shaopo Shaoqi Shaokang Shaosai Shaozhuo Shaogao Shaoao Shaoyuan
-
-Shaoning Shaozhai Shaozha Shaoshuang Shaoping Shaojuan Shaojun Shaoren Shaozhu Shaopan
-
-Shaodi Shaoxu Shaodou Shaoseng Shaoen Shaofen Shaoman Shaorui Shaorao Shaochong
-
-Shaokuo Shaofei Shaoye Shaosi Shaohuai Shaoe Shaoyin Shaoze Shaohun Shaohai
-
-Shaoxing Shaozhun Shaochuang Shaowa Shaobang Shaozhao Shaozhang Shaoguo Shaobo   Shaoqian
-
-Shaoshai Shaoyao Shaoru Shaohui Shaomiao Shaocen Shaotang Shaopai Shaohang Shaoqing
-
-Shaomin Shaokai Shaoshao Shaozong Shaomu Shaotong Shaochu Shaocong Shaogou Shaojin
-
-Shaoruo Shaonun Shaoxun Shaomeng Shaobin Shaodui Shaoyong Shaosen Shaocheng Shaomou
-
-Shaoyun Shaoduan Shaohan Shaoquan Shaowu Shaozi Shaoai Shaocai Shaosui Shaobing
-
-Shaochang Shaomei Shaoguang Shaoshen Shaona Shaoshun Shaocun Shaojiang Shaozhuai Shaohuan
-
-Shaosu Shaosong Shaoyan Shaoqiao Shaodu Shaojia Shaochi Shaolei Shaoshu Shaotian
-
-Shaozun Shaoqiong Shaoxiu Shaosha Shaogeng Shaozhen Shaogong Shaozhi Shaomi Shaoyi
-
-Shaolan Shaogen Shaoyu Shaohua Shaochun Shaoji Shaolang Shaosun Shaozheng Shaomie
-
-Shaohe Shaoxue Shaopei Shaoxiang Shaoqie Shaoyou Shaoge Shaoguan Shaojiao Shaofeng
-
-Shaoting Shaonai Shaoxia Shaodai Shaochan Shaoteng Shaojie Shaozhan Shaomian Shaokuan
-
-Shaogai Shaoshan Shaoran Shaozhe Shaolu Shaowang Shaoxuan Shaozhong Shaohao Shaozu
-
-Shaogang Shaoqiang Shaorong Shaoshe 
+Shaoxiang Shaoyou Shaofeng Shaoting Shaoxia Shaojie Shaoshan Shaozhe Shaolu Shaoxuan Shaozhong
